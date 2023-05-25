@@ -1999,3 +1999,1990 @@
 
 [Kinderen gedupeerd door bedrog met symbolische munten in game-omgeving Roblox](https://nieuwsvertaald.nl/tech/50886/kinderen-gedupeerd-door-bedrog-met-symbolische-munten-in-game-omgeving-roblox)
 
+[Grote spelers in de tech-industrie overleggen met Witte Huis over gevaren AI](https://nieuwsvertaald.nl/tech/50863/grote-spelers-in-de-tech-industrie-overleggen-met-witte-huis-over-gevaren-ai)
+
+[LinkedIn viert 20-jarig bestaan met bijna miljard gebruikers](https://nieuwsvertaald.nl/tech/50862/linkedin-viert-20-jarig-bestaan-met-bijna-miljard-gebruikers)
+
+[Leider van AI verlaat Google en uit bezorgdheid over kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/50861/leider-van-ai-verlaat-google-en-uit-bezorgdheid-over-kunstmatige-intelligentie)
+
+[De concurrentiestrijd in AI: Welke bedrijven zullen zegevieren?](https://nieuwsvertaald.nl/tech/50842/de-concurrentiestrijd-in-ai-welke-bedrijven-zullen-zegevieren)
+
+[Overname van Activision Blizzard door Microsoft geblokkeerd door Britse regulator](https://nieuwsvertaald.nl/tech/50841/overname-van-activision-blizzard-door-microsoft-geblokkeerd-door-britse-regulator)
+
+[Techplatforms moeten zich aan nieuwe EU-regels houden](https://nieuwsvertaald.nl/tech/50840/techplatforms-moeten-zich-aan-nieuwe-eu-regels-houden)
+
+[Slachtoffers van online oplichting met virtuele munten op Roblox voor kinderen](https://nieuwsvertaald.nl/tech/50839/slachtoffers-van-online-oplichting-met-virtuele-munten-op-roblox-voor-kinderen)
+
+[Linda Yaccarino benoemd tot directeur Twitter door Musk](https://nieuwsvertaald.nl/tech/50833/linda-yaccarino-benoemd-tot-directeur-twitter-door-musk)
+
+[Stappen naar het behalen van Europese AI-beleidsplannen worden gemaakt](https://nieuwsvertaald.nl/tech/50819/stappen-naar-het-behalen-van-europese-ai-beleidsplannen-worden-gemaakt)
+
+[Google test AI-gedreven zoekmachine met generatieve mogelijkheden](https://nieuwsvertaald.nl/tech/50818/google-test-ai-gedreven-zoekmachine-met-generatieve-mogelijkheden)
+
+[AI-risico's besproken door techbedrijven in het Witte Huis](https://nieuwsvertaald.nl/tech/50817/ai-risicos-besproken-door-techbedrijven-in-het-witte-huis)
+
+[LinkedIn groeit gestaag naar een miljard leden na twintig jaar in relatieve rust.](https://nieuwsvertaald.nl/tech/50816/linkedin-groeit-gestaag-naar-een-miljard-leden-na-twintig-jaar-in-relatieve-rust)
+
+[Vrijwilligersgroepen ondersteunen politie bij opsporing van verloren individuen.](https://nieuwsvertaald.nl/binnenland/50812/vrijwilligersgroepen-ondersteunen-politie-bij-opsporing-van-verloren-individuen)
+
+[Ervaringsdeskundige op het gebied van kunstmatige intelligentie stapt op bij Google en brengt waarschuwing naar voren](https://nieuwsvertaald.nl/tech/50809/ervaringsdeskundige-op-het-gebied-van-kunstmatige-intelligentie-stapt-op-bij-google-en-brengt-waarschuwing-naar-voren)
+
+[Welke onderneming zal zegevieren in de strijd om AI-heerschappij? Bedrijven in de tech-wereld staan op hun hoede.](https://nieuwsvertaald.nl/tech/50795/welke-onderneming-zal-zegevieren-in-de-strijd-om-ai-heerschappij-bedrijven-in-de-tech-wereld-staan-op-hun-hoede)
+
+[Overname van Activision Blizzard door Microsoft wordt geblokkeerd door Britse toezichthouder.](https://nieuwsvertaald.nl/tech/50794/overname-van-activision-blizzard-door-microsoft-wordt-geblokkeerd-door-britse-toezichthouder)
+
+[Twintig technologie platforms krijgen zwaardere regels opgelegd door de Europese Unie](https://nieuwsvertaald.nl/tech/50793/twintig-technologie-platforms-krijgen-zwaardere-regels-opgelegd-door-de-europese-unie)
+
+[Opgelichte kinderen door virtuele munten op gameplatform Roblox](https://nieuwsvertaald.nl/tech/50792/opgelichte-kinderen-door-virtuele-munten-op-gameplatform-roblox)
+
+[Nieuwe directeur van Twitter aangekondigd door Musk: Linda Yaccarino](https://nieuwsvertaald.nl/tech/50786/nieuwe-directeur-van-twitter-aangekondigd-door-musk-linda-yaccarino)
+
+[Stappen richting Europese AI-reglementen: plannen in aantocht](https://nieuwsvertaald.nl/tech/50773/stappen-richting-europese-ai-reglementen-plannen-in-aantocht)
+
+[Google test nieuwe zoekmachine met AI die generatief is ingezet](https://nieuwsvertaald.nl/tech/50772/google-test-nieuwe-zoekmachine-met-ai-die-generatief-is-ingezet)
+
+[Topbedrijven in tech naar Witte Huis voor overleg over AI-risico's](https://nieuwsvertaald.nl/tech/50771/topbedrijven-in-tech-naar-witte-huis-voor-overleg-over-ai-risicos)
+
+[20 jaar LinkedIn: Bijna 1 miljard leden behaald in stilte](https://nieuwsvertaald.nl/tech/50770/20-jaar-linkedin-bijna-1-miljard-leden-behaald-in-stilte)
+
+['Expert in AI verlaat Google en uit zorgen over toekomst'](https://nieuwsvertaald.nl/tech/50764/expert-in-ai-verlaat-google-en-uit-zorgen-over-toekomst)
+
+[Overname van afvalverwerker AEB Amsterdam afgeblazen](https://nieuwsvertaald.nl/economie/50757/overname-van-afvalverwerker-aeb-amsterdam-afgeblazen)
+
+[Welk bedrijf zal de leiding nemen in de wedloop voor AI? High-tech ondernemingen zijn in de startblokken.](https://nieuwsvertaald.nl/tech/50748/welk-bedrijf-zal-de-leiding-nemen-in-de-wedloop-voor-ai-high-tech-ondernemingen-zijn-in-de-startblokken)
+
+[Acquisitie van Activision Blizzard door Microsoft gestopt door Britse regulator](https://nieuwsvertaald.nl/tech/50747/acquisitie-van-activision-blizzard-door-microsoft-gestopt-door-britse-regulator)
+
+[Nieuwe EU-verordeningen beheersen bijna 20 technologieplatforms](https://nieuwsvertaald.nl/tech/50746/nieuwe-eu-verordeningen-beheersen-bijna-20-technologieplatforms)
+
+[Fraude met virtuele muntjes op Roblox benadeelt kinderen](https://nieuwsvertaald.nl/tech/50745/fraude-met-virtuele-muntjes-op-roblox-benadeelt-kinderen)
+
+[Stapje dichter bij Europese richtlijnen voor AI: de toekomst plannen](https://nieuwsvertaald.nl/tech/50739/stapje-dichter-bij-europese-richtlijnen-voor-ai-de-toekomst-plannen)
+
+[Google test met vernieuwende zoekmachine met generatieve kunstmatige intelligentie (58 karakters)](https://nieuwsvertaald.nl/tech/50725/google-test-met-vernieuwende-zoekmachine-met-generatieve-kunstmatige-intelligentie-58-karakters)
+
+[Top techbedrijven naar Witte Huis voor AI veiligheidsgesprekken](https://nieuwsvertaald.nl/tech/50724/top-techbedrijven-naar-witte-huis-voor-ai-veiligheidsgesprekken)
+
+[20-jarig bestaan van LinkedIn: van obscuriteit naar bijna miljard gebruikers](https://nieuwsvertaald.nl/tech/50723/20-jarig-bestaan-van-linkedin-van-obscuriteit-naar-bijna-miljard-gebruikers)
+
+['Vaderfiguur van kunstmatige intelligentie' stopt bij Google en waarschuwt voor gevaren van AI](https://nieuwsvertaald.nl/tech/50722/vaderfiguur-van-kunstmatige-intelligentie-stopt-bij-google-en-waarschuwt-voor-gevaren-van-ai)
+
+[Welke bedrijven zullen de AI-wedloop winnen? Concurrentie is moordend in tech-industrie.](https://nieuwsvertaald.nl/tech/50716/welke-bedrijven-zullen-de-ai-wedloop-winnen-concurrentie-is-moordend-in-tech-industrie)
+
+[Overnameplan Microsoft van Activision Blizzard gedwarsboomd door Britse regelgever](https://nieuwsvertaald.nl/tech/50701/overnameplan-microsoft-van-activision-blizzard-gedwarsboomd-door-britse-regelgever)
+
+[20 tech platforms worden getroffen door nieuwe EU-regelgeving](https://nieuwsvertaald.nl/tech/50700/20-tech-platforms-worden-getroffen-door-nieuwe-eu-regelgeving)
+
+[Oplichting van minderjarigen met nepmunten op gameplatform Roblox](https://nieuwsvertaald.nl/tech/50699/oplichting-van-minderjarigen-met-nepmunten-op-gameplatform-roblox)
+
+[Eenzaamheid bij papegaaien mogelijk verholpen door videobellen](https://nieuwsvertaald.nl/tech/50698/eenzaamheid-bij-papegaaien-mogelijk-verholpen-door-videobellen)
+
+[Google test nieuwe zoekmachine met AI die kan genereren](https://nieuwsvertaald.nl/tech/50679/google-test-nieuwe-zoekmachine-met-ai-die-kan-genereren)
+
+[Grote techbedrijven gaan in gesprek met het Witte Huis over de gevaren van AI](https://nieuwsvertaald.nl/tech/50678/grote-techbedrijven-gaan-in-gesprek-met-het-witte-huis-over-de-gevaren-van-ai)
+
+[LinkedIn viert twintigste verjaardag met bijna miljard leden in rustige groei](https://nieuwsvertaald.nl/tech/50677/linkedin-viert-twintigste-verjaardag-met-bijna-miljard-leden-in-rustige-groei)
+
+[Top expert in kunstmatige intelligentie verlaat Google en waarschuwt voor gevaren van AI](https://nieuwsvertaald.nl/tech/50676/top-expert-in-kunstmatige-intelligentie-verlaat-google-en-waarschuwt-voor-gevaren-van-ai)
+
+[Welke bedrijven zullen de leiding nemen in de race naar AI-dominantie? Tech-giganten zijn alert.](https://nieuwsvertaald.nl/tech/50670/welke-bedrijven-zullen-de-leiding-nemen-in-de-race-naar-ai-dominantie-tech-giganten-zijn-alert)
+
+[Overnamepoging Microsoft van Activision Blizzard geweigerd door Britse toezichthouder](https://nieuwsvertaald.nl/tech/50655/overnamepoging-microsoft-van-activision-blizzard-geweigerd-door-britse-toezichthouder)
+
+["De Europese Unie intensifieert regulering op bijna 20 techplatforms"](https://nieuwsvertaald.nl/tech/50654/de-europese-unie-intensifieert-regulering-op-bijna-20-techplatforms)
+
+[Jonge slachtoffers van fraude middels gefingeerde munten op gaming site Roblox](https://nieuwsvertaald.nl/tech/50653/jonge-slachtoffers-van-fraude-middels-gefingeerde-munten-op-gaming-site-roblox)
+
+[Oplossing voor eenzame papegaaien - connectie via videobellen](https://nieuwsvertaald.nl/tech/50652/oplossing-voor-eenzame-papegaaien-connectie-via-videobellen)
+
+[Naderende plannen betreffende AI-regulaties in Europa nabij](https://nieuwsvertaald.nl/tech/50646/naderende-plannen-betreffende-ai-regulaties-in-europa-nabij)
+
+[Google test innovatieve zoekmachine met 'generatieve' AI technologie](https://nieuwsvertaald.nl/tech/50631/google-test-innovatieve-zoekmachine-met-generatieve-ai-technologie)
+
+[Grote namen uit techindustrie bespreken AI-risico's in Witte Huis](https://nieuwsvertaald.nl/tech/50630/grote-namen-uit-techindustrie-bespreken-ai-risicos-in-witte-huis)
+
+["Bijna miljard professionals op LinkedIn na 20 jaar: Een succesverhaal in stilte"](https://nieuwsvertaald.nl/tech/50629/bijna-miljard-professionals-op-linkedin-na-20-jaar-een-succesverhaal-in-stilte)
+
+["Topman achter AI revolutie verlaat Google en uit zorg over kunstmatige intelligentie"](https://nieuwsvertaald.nl/tech/50628/topman-achter-ai-revolutie-verlaat-google-en-uit-zorg-over-kunstmatige-intelligentie)
+
+[Welke firma zal de leiding nemen in de race voor AI? Hightech-bedrijven op hoge alert](https://nieuwsvertaald.nl/tech/50622/welke-firma-zal-de-leiding-nemen-in-de-race-voor-ai-hightech-bedrijven-op-hoge-alert)
+
+[Overname van Activision Blizzard door Microsoft tegengehouden door Britse autoriteit](https://nieuwsvertaald.nl/tech/50608/overname-van-activision-blizzard-door-microsoft-tegengehouden-door-britse-autoriteit)
+
+[Nieuwe regels voor bijna twintig techplatforms in Europa](https://nieuwsvertaald.nl/tech/50607/nieuwe-regels-voor-bijna-twintig-techplatforms-in-europa)
+
+[Ongeldige transacties met fictieve munten op gameplatform Roblox bezorgen kinderen tranen](https://nieuwsvertaald.nl/tech/50606/ongeldige-transacties-met-fictieve-munten-op-gameplatform-roblox-bezorgen-kinderen-tranen)
+
+[Videochatten biedt uitkomst voor alleenstaande vogels.](https://nieuwsvertaald.nl/tech/50605/videochatten-biedt-uitkomst-voor-alleenstaande-vogels)
+
+[Google test nieuwe zoekmachine met 'creërende' kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/50599/google-test-nieuwe-zoekmachine-met-creerende-kunstmatige-intelligentie)
+
+[Bedrijfsleiders bezoeken Witte Huis om gevaren van kunstmatige intelligentie te onderzoeken](https://nieuwsvertaald.nl/tech/50586/bedrijfsleiders-bezoeken-witte-huis-om-gevaren-van-kunstmatige-intelligentie-te-onderzoeken)
+
+[LinkedIn: Twenty years of growth in relative obscurity towards nearly a billion members](https://nieuwsvertaald.nl/tech/50585/linkedin-twenty-years-of-growth-in-relative-obscurity-towards-nearly-a-billion-members)
+
+[Topexpert AI verlaat Google en wijst op gevaren kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/50584/topexpert-ai-verlaat-google-en-wijst-op-gevaren-kunstmatige-intelligentie)
+
+[Welk bedrijf wordt leider in de AI-wedloop? Technologie ondernemingen zijn klaar voor strijd](https://nieuwsvertaald.nl/tech/50583/welk-bedrijf-wordt-leider-in-de-ai-wedloop-technologie-ondernemingen-zijn-klaar-voor-strijd)
+
+[Vrijwilligers helpen landelijk bij zoektocht naar vermiste mensen](https://nieuwsvertaald.nl/binnenland/50580/vrijwilligers-helpen-landelijk-bij-zoektocht-naar-vermiste-mensen)
+
+[Activision Blizzard overname door Microsoft geweigerd door Britse regulator](https://nieuwsvertaald.nl/tech/50562/activision-blizzard-overname-door-microsoft-geweigerd-door-britse-regulator)
+
+[Twintigtal tech platforms onderhevig aan nieuwe EU regels](https://nieuwsvertaald.nl/tech/50561/twintigtal-tech-platforms-onderhevig-aan-nieuwe-eu-regels)
+
+[Oplichting van jonge gamers door in-game munten op Roblox-platform](https://nieuwsvertaald.nl/tech/50560/oplichting-van-jonge-gamers-door-in-game-munten-op-roblox-platform)
+
+[Video chat als remedie tegen isolement bij tropische vogels](https://nieuwsvertaald.nl/tech/50559/video-chat-als-remedie-tegen-isolement-bij-tropische-vogels)
+
+[Google test nieuwe zoekmachine met AI die kan genereren](https://nieuwsvertaald.nl/tech/50553/google-test-nieuwe-zoekmachine-met-ai-die-kan-genereren)
+
+[IT-bedrijven bijeenkomst bij de Amerikaanse president in verband met AI-risico's](https://nieuwsvertaald.nl/tech/50539/it-bedrijven-bijeenkomst-bij-de-amerikaanse-president-in-verband-met-ai-risicos)
+
+[LinkedIn bestaat al twee decennia en groeide gestaag tot bijna één miljard gebruikers](https://nieuwsvertaald.nl/tech/50538/linkedin-bestaat-al-twee-decennia-en-groeide-gestaag-tot-bijna-een-miljard-gebruikers)
+
+[Topexpert AI stapt op bij Google en uit zorgen over kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/50537/topexpert-ai-stapt-op-bij-google-en-uit-zorgen-over-kunstmatige-intelligentie)
+
+[Welk bedrijf zal de leiding nemen in de strijd om AI? Tech-bedrijven worden geconfronteerd met uitdagingen.](https://nieuwsvertaald.nl/tech/50531/welk-bedrijf-zal-de-leiding-nemen-in-de-strijd-om-ai-tech-bedrijven-worden-geconfronteerd-met-uitdagingen)
+
+[Overname plan Activision Blizzard door Microsoft afgekeurd door Britse waakhond](https://nieuwsvertaald.nl/tech/50516/overname-plan-activision-blizzard-door-microsoft-afgekeurd-door-britse-waakhond)
+
+[Strengere regels EU voor bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/50515/strengere-regels-eu-voor-bijna-20-techplatforms)
+
+[Oplichtpraktijken met nepgeld voor Roblox gameplatform zorgen voor teleurgestelde kinderen](https://nieuwsvertaald.nl/tech/50514/oplichtpraktijken-met-nepgeld-voor-roblox-gameplatform-zorgen-voor-teleurgestelde-kinderen)
+
+[Videocommunicatie als redding voor eenzame vogels.](https://nieuwsvertaald.nl/tech/50513/videocommunicatie-als-redding-voor-eenzame-vogels)
+
+[Vooruitgang richting implementatie AI-voorschriften in Europa - blik op de toekomst](https://nieuwsvertaald.nl/tech/50507/vooruitgang-richting-implementatie-ai-voorschriften-in-europa-blik-op-de-toekomst)
+
+[Google test nieuwe zoekmachine met kunstmatige intelligentie die 'generatief' is.](https://nieuwsvertaald.nl/tech/50493/google-test-nieuwe-zoekmachine-met-kunstmatige-intelligentie-die-generatief-is)
+
+[Meeting in Witte Huis tussen technologiebedrijven en ambtenaren over risico's AI](https://nieuwsvertaald.nl/tech/50492/meeting-in-witte-huis-tussen-technologiebedrijven-en-ambtenaren-over-risicos-ai)
+
+[LinkedIn viert twintigste verjaardag in stilte terwijl het bijna een miljard leden bereikt](https://nieuwsvertaald.nl/tech/50491/linkedin-viert-twintigste-verjaardag-in-stilte-terwijl-het-bijna-een-miljard-leden-bereikt)
+
+[De 'Meester van Machine Intelligentie' gaat weg bij Google en brengt waarschuwingen over AI](https://nieuwsvertaald.nl/tech/50490/de-meester-van-machine-intelligentie-gaat-weg-bij-google-en-brengt-waarschuwingen-over-ai)
+
+[Tech-giganten strijden om AI-heerschappij: Wie komt als winnaar uit de bus?](https://nieuwsvertaald.nl/tech/50483/tech-giganten-strijden-om-ai-heerschappij-wie-komt-als-winnaar-uit-de-bus)
+
+[Overname van Activision Blizzard door Microsoft geblokkeerd door Britse toezichthouder](https://nieuwsvertaald.nl/tech/50468/overname-van-activision-blizzard-door-microsoft-geblokkeerd-door-britse-toezichthouder)
+
+[Strengere EU-regulering voor circa 20 technologische platforms.](https://nieuwsvertaald.nl/tech/50467/strengere-eu-regulering-voor-circa-20-technologische-platforms)
+
+[Gedupeerde kinderen door onbekende valuta op het spelplatform Roblox](https://nieuwsvertaald.nl/tech/50466/gedupeerde-kinderen-door-onbekende-valuta-op-het-spelplatform-roblox)
+
+[Videochat als verlichting voor solitaire kromsnavels](https://nieuwsvertaald.nl/tech/50465/videochat-als-verlichting-voor-solitaire-kromsnavels)
+
+[Naderende vooruitgang zet Europese AI-regels in werking: beoogde acties.](https://nieuwsvertaald.nl/tech/50462/naderende-vooruitgang-zet-europese-ai-regels-in-werking-beoogde-acties)
+
+[Google test nieuwe zoekmachine met 'creërende' kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/50446/google-test-nieuwe-zoekmachine-met-creerende-kunstmatige-intelligentie)
+
+[Tech giganten naar Washington om AI-risico's te onderzoeken](https://nieuwsvertaald.nl/tech/50445/tech-giganten-naar-washington-om-ai-risicos-te-onderzoeken)
+
+[LinkedIn bestaat al 20 jaar en heeft bijna één miljard leden](https://nieuwsvertaald.nl/tech/50444/linkedin-bestaat-al-20-jaar-en-heeft-bijna-een-miljard-leden)
+
+[Kunstmatige intelligentie leider vertrekt bij Google en alarmeert over AI.](https://nieuwsvertaald.nl/tech/50443/kunstmatige-intelligentie-leider-vertrekt-bij-google-en-alarmeert-over-ai)
+
+[Welke techgigant zal de leiding nemen in de race naar AI-dominantie? Bedrijven staan op scherp.](https://nieuwsvertaald.nl/tech/50438/welke-techgigant-zal-de-leiding-nemen-in-de-race-naar-ai-dominantie-bedrijven-staan-op-scherp)
+
+[Microsoft mag Activision Blizzard toch niet overnemen van Britse toezichthouder](https://nieuwsvertaald.nl/tech/50423/microsoft-mag-activision-blizzard-toch-niet-overnemen-van-britse-toezichthouder)
+
+[Techplatforms worden onderhevig aan strenge regels in de EU](https://nieuwsvertaald.nl/tech/50422/techplatforms-worden-onderhevig-aan-strenge-regels-in-de-eu)
+
+[Oplichting van kinderen met virtuele munten op gameportal Roblox](https://nieuwsvertaald.nl/tech/50421/oplichting-van-kinderen-met-virtuele-munten-op-gameportal-roblox)
+
+[Interactief communiceren helpt eenzame vogels bij het versterken van hun geestestoestand.](https://nieuwsvertaald.nl/tech/50420/interactief-communiceren-helpt-eenzame-vogels-bij-het-versterken-van-hun-geestestoestand)
+
+[Europese plannen voor AI regelgeving naderen voltooiing](https://nieuwsvertaald.nl/tech/50415/europese-plannen-voor-ai-regelgeving-naderen-voltooiing)
+
+[Google test nieuwe zoekmachine met innovatieve 'generative' AI technologieën](https://nieuwsvertaald.nl/tech/50401/google-test-nieuwe-zoekmachine-met-innovatieve-generative-ai-technologieen)
+
+[Techbedrijven en Witte Huis bespreken veiligheidsrisico's van AI](https://nieuwsvertaald.nl/tech/50400/techbedrijven-en-witte-huis-bespreken-veiligheidsrisicos-van-ai)
+
+[LinkedIn viert twintigste verjaardag en bereikt bijna miljard leden in stilte](https://nieuwsvertaald.nl/tech/50399/linkedin-viert-twintigste-verjaardag-en-bereikt-bijna-miljard-leden-in-stilte)
+
+["Leidende AI-pionier verlaat Google en uit zorgen over kunstmatige intelligentie"](https://nieuwsvertaald.nl/tech/50398/leidende-ai-pionier-verlaat-google-en-uit-zorgen-over-kunstmatige-intelligentie)
+
+[Welk bedrijf wint de strijd om AI? Concurrentie in de techsector.](https://nieuwsvertaald.nl/tech/50393/welk-bedrijf-wint-de-strijd-om-ai-concurrentie-in-de-techsector)
+
+[Microsoft's poging tot aankoop van Activision Blizzard geweigerd door Britse toezichthouder.](https://nieuwsvertaald.nl/tech/50378/microsofts-poging-tot-aankoop-van-activision-blizzard-geweigerd-door-britse-toezichthouder)
+
+[Techplatforms moeten voldoen aan strengere EU-regels: 20 platformen getroffen](https://nieuwsvertaald.nl/tech/50377/techplatforms-moeten-voldoen-aan-strengere-eu-regels-20-platformen-getroffen)
+
+[Opgelichte kinderen door virtuele valuta op gameplatform Roblox](https://nieuwsvertaald.nl/tech/50376/opgelichte-kinderen-door-virtuele-valuta-op-gameplatform-roblox)
+
+[Oplossing voor de eenzaamheid van papegaaien: communicatie via video](https://nieuwsvertaald.nl/tech/50375/oplossing-voor-de-eenzaamheid-van-papegaaien-communicatie-via-video)
+
+[Google's nieuwe zoekmachine ontwikkelt zich met behulp van innovatieve 'generatieve' AI.](https://nieuwsvertaald.nl/tech/50366/googles-nieuwe-zoekmachine-ontwikkelt-zich-met-behulp-van-innovatieve-generatieve-ai)
+
+[Tech ondernemingen bespreken gevaren AI met Witte Huis](https://nieuwsvertaald.nl/tech/50356/tech-ondernemingen-bespreken-gevaren-ai-met-witte-huis)
+
+[LinkedIn viert twintigjarig bestaan en groeit gestaag naar miljard gebruikers](https://nieuwsvertaald.nl/tech/50355/linkedin-viert-twintigjarig-bestaan-en-groeit-gestaag-naar-miljard-gebruikers)
+
+["Pionier AI genie verlaat Google en uit bezorgdheid over toekomstige ontwikkelingen"](https://nieuwsvertaald.nl/tech/50354/pionier-ai-genie-verlaat-google-en-uit-bezorgdheid-over-toekomstige-ontwikkelingen)
+
+[Welk bedrijf zal de leiding nemen in de race naar AI-dominantie? Technologische ondernemingen worden op het scherp van de snede gehouden.](https://nieuwsvertaald.nl/tech/50349/welk-bedrijf-zal-de-leiding-nemen-in-de-race-naar-ai-dominantie-technologische-ondernemingen-worden-op-het-scherp-van-de-snede-gehouden)
+
+[Overname van Activision Blizzard door Microsoft geblokkeerd door Britse waakhond](https://nieuwsvertaald.nl/tech/50334/overname-van-activision-blizzard-door-microsoft-geblokkeerd-door-britse-waakhond)
+
+[Strengere regels Europese Unie voor bijna twintig techplatformen](https://nieuwsvertaald.nl/tech/50333/strengere-regels-europese-unie-voor-bijna-twintig-techplatformen)
+
+[Roblox-gameplatform beschuldigd van oplichting van kinderen met ingame valuta](https://nieuwsvertaald.nl/tech/50332/roblox-gameplatform-beschuldigd-van-oplichting-van-kinderen-met-ingame-valuta)
+
+[Mogelijk nieuwe pagina titel: Verbinding via video voor solitaire vogels](https://nieuwsvertaald.nl/tech/50331/mogelijk-nieuwe-pagina-titel-verbinding-via-video-voor-solitaire-vogels)
+
+[Plannen vorderen om Europese AI-standaarden te definiëren](https://nieuwsvertaald.nl/tech/50326/plannen-vorderen-om-europese-ai-standaarden-te-definieren)
+
+[Google test een frisse zoekmachine met behulp van 'generative' kunstmatige intelligentie.](https://nieuwsvertaald.nl/tech/50312/google-test-een-frisse-zoekmachine-met-behulp-van-generative-kunstmatige-intelligentie)
+
+[Bespreking van AI-risico's met techbedrijven in het Witte Huis.](https://nieuwsvertaald.nl/tech/50311/bespreking-van-ai-risicos-met-techbedrijven-in-het-witte-huis)
+
+[LinkedIn viert 20-jarig bestaan en bereikt bijna 1 miljard gebruikers in stilte.](https://nieuwsvertaald.nl/tech/50310/linkedin-viert-20-jarig-bestaan-en-bereikt-bijna-1-miljard-gebruikers-in-stilte)
+
+[Expert AI-technologie vertrekt bij Google en wijst op gevaren AI](https://nieuwsvertaald.nl/tech/50309/expert-ai-technologie-vertrekt-bij-google-en-wijst-op-gevaren-ai)
+
+[Welk bedrijf wint de strijd om Artificial Intelligence? Concurrenten op hun hoede](https://nieuwsvertaald.nl/tech/50304/welk-bedrijf-wint-de-strijd-om-artificial-intelligence-concurrenten-op-hun-hoede)
+
+[Nieuws: Overname van Activision Blizzard door Microsoft geweigerd door Britse regulatoren](https://nieuwsvertaald.nl/tech/50289/nieuws-overname-van-activision-blizzard-door-microsoft-geweigerd-door-britse-regulatoren)
+
+[Strengere richtlijnen EU voor bijna 20 technologieplatforms](https://nieuwsvertaald.nl/tech/50288/strengere-richtlijnen-eu-voor-bijna-20-technologieplatforms)
+
+[Misleidende virtuele munten gebruikt om kinderen op gamingplatform Roblox op te lichten](https://nieuwsvertaald.nl/tech/50287/misleidende-virtuele-munten-gebruikt-om-kinderen-op-gamingplatform-roblox-op-te-lichten)
+
+[Videochat helpt eenzame vogels](https://nieuwsvertaald.nl/tech/50286/videochat-helpt-eenzame-vogels)
+
+[Meer richting Europese AI voorschriften met gedetailleerde plannen](https://nieuwsvertaald.nl/tech/50277/meer-richting-europese-ai-voorschriften-met-gedetailleerde-plannen)
+
+[Google test nieuwe zoektechnologie met innovatieve AI](https://nieuwsvertaald.nl/tech/50267/google-test-nieuwe-zoektechnologie-met-innovatieve-ai)
+
+[Technologie organisaties houden gesprekken met Witte Huis over AI gevaren](https://nieuwsvertaald.nl/tech/50266/technologie-organisaties-houden-gesprekken-met-witte-huis-over-ai-gevaren)
+
+[LinkedIn groeit als kool naar miljardste lid in twintig jaar](https://nieuwsvertaald.nl/tech/50265/linkedin-groeit-als-kool-naar-miljardste-lid-in-twintig-jaar)
+
+[Google verliest visionair op gebied van kunstmatige intelligentie en waarschuwer voor AI.](https://nieuwsvertaald.nl/tech/50264/google-verliest-visionair-op-gebied-van-kunstmatige-intelligentie-en-waarschuwer-voor-ai)
+
+[Techreuzen in hevige strijd om AI-voorsprong](https://nieuwsvertaald.nl/tech/50259/techreuzen-in-hevige-strijd-om-ai-voorsprong)
+
+[Autoriteit blokkeert de overname van Activision Blizzard door Microsoft in het VK](https://nieuwsvertaald.nl/tech/50244/autoriteit-blokkeert-de-overname-van-activision-blizzard-door-microsoft-in-het-vk)
+
+[Strengere regels EU van toepassing op bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/50243/strengere-regels-eu-van-toepassing-op-bijna-20-techplatforms)
+
+[Oplichting van minderjarigen middels fictieve valuta op online gameplatform Roblox](https://nieuwsvertaald.nl/tech/50242/oplichting-van-minderjarigen-middels-fictieve-valuta-op-online-gameplatform-roblox)
+
+[Videochat om eenzaamheid bij papegaaien te verminderen](https://nieuwsvertaald.nl/tech/50241/videochat-om-eenzaamheid-bij-papegaaien-te-verminderen)
+
+[Plannen voor implementatie Europese AI-regulering op komst](https://nieuwsvertaald.nl/tech/50232/plannen-voor-implementatie-europese-ai-regulering-op-komst)
+
+[Google test nieuwe zoekmachine d.m.v. vernieuwende AI-technologie](https://nieuwsvertaald.nl/tech/50222/google-test-nieuwe-zoekmachine-d-m-v-vernieuwende-ai-technologie)
+
+[Techindustrieleiders naar regeringsgebouw om AI-risico's te bespreken](https://nieuwsvertaald.nl/tech/50221/techindustrieleiders-naar-regeringsgebouw-om-ai-risicos-te-bespreken)
+
+[20 Jaar geleden gestart en nu bijna één miljard leden: LinkedIn opereert in betrekkelijke stilte.](https://nieuwsvertaald.nl/tech/50220/20-jaar-geleden-gestart-en-nu-bijna-een-miljard-leden-linkedin-opereert-in-betrekkelijke-stilte)
+
+[Oprichter van AI bij Google verlaat bedrijf en waarschuwt voor opkomst van kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/50219/oprichter-van-ai-bij-google-verlaat-bedrijf-en-waarschuwt-voor-opkomst-van-kunstmatige-intelligentie)
+
+[Welke bedrijven zullen voorop lopen in de race voor AI-dominantie? Techindustrie slaat alarm.](https://nieuwsvertaald.nl/tech/50214/welke-bedrijven-zullen-voorop-lopen-in-de-race-voor-ai-dominantie-techindustrie-slaat-alarm)
+
+[Overname Activision Blizzard door Microsoft afgewezen door Britse regelgever](https://nieuwsvertaald.nl/tech/50199/overname-activision-blizzard-door-microsoft-afgewezen-door-britse-regelgever)
+
+[Strengere regelgeving van Europese Unie voor bijna 20 techbedrijven](https://nieuwsvertaald.nl/tech/50198/strengere-regelgeving-van-europese-unie-voor-bijna-20-techbedrijven)
+
+[Gedupeerde kinderen door virtuele valuta op Roblox-spelplatform](https://nieuwsvertaald.nl/tech/50197/gedupeerde-kinderen-door-virtuele-valuta-op-roblox-spelplatform)
+
+[Videogesprekken bieden uitkomst voor eenzame vogels.](https://nieuwsvertaald.nl/tech/50196/videogesprekken-bieden-uitkomst-voor-eenzame-vogels)
+
+[AI-regelgeving in Europa, plannen voor de toekomst nabij](https://nieuwsvertaald.nl/tech/50185/ai-regelgeving-in-europa-plannen-voor-de-toekomst-nabij)
+
+[Google test een zoekmachine met nieuwe 'generatieve' AI-technologie.](https://nieuwsvertaald.nl/tech/50177/google-test-een-zoekmachine-met-nieuwe-generatieve-ai-technologie)
+
+[Discussie over AI-risico's tussen techbedrijven en Witte Huis](https://nieuwsvertaald.nl/tech/50176/discussie-over-ai-risicos-tussen-techbedrijven-en-witte-huis)
+
+[LinkedIn groeit gestaag naar miljard leden na twintig jaar in rustiger vaarwater](https://nieuwsvertaald.nl/tech/50175/linkedin-groeit-gestaag-naar-miljard-leden-na-twintig-jaar-in-rustiger-vaarwater)
+
+[Kunstmatige intelligentie expert verlaat Google en deelt AI waarschuwing](https://nieuwsvertaald.nl/tech/50174/kunstmatige-intelligentie-expert-verlaat-google-en-deelt-ai-waarschuwing)
+
+[Tech-giganten in de stemming voor de heerschappij over AI-industrie](https://nieuwsvertaald.nl/tech/50169/tech-giganten-in-de-stemming-voor-de-heerschappij-over-ai-industrie)
+
+[Overname Activision Blizzard door Microsoft afgekeurd door Britse toezichthouder](https://nieuwsvertaald.nl/tech/50154/overname-activision-blizzard-door-microsoft-afgekeurd-door-britse-toezichthouder)
+
+[Europees beleid raakt bijna 20 techplatforms met strengere regulering](https://nieuwsvertaald.nl/tech/50153/europees-beleid-raakt-bijna-20-techplatforms-met-strengere-regulering)
+
+[Oplichting met digitale munten op spelplatform Roblox richt schade aan bij kinderen](https://nieuwsvertaald.nl/tech/50152/oplichting-met-digitale-munten-op-spelplatform-roblox-richt-schade-aan-bij-kinderen)
+
+[Oplossing voor eenzame vogels: communiceren via videobellen](https://nieuwsvertaald.nl/tech/50151/oplossing-voor-eenzame-vogels-communiceren-via-videobellen)
+
+[Google test nieuwe zoekmachine met 'creërende' AI-technologie](https://nieuwsvertaald.nl/tech/50142/google-test-nieuwe-zoekmachine-met-creerende-ai-technologie)
+
+[Techbedrijven bespreken AI-risico's met het Witte Huis](https://nieuwsvertaald.nl/tech/50132/techbedrijven-bespreken-ai-risicos-met-het-witte-huis)
+
+[LinkedIn groeit gestaag naar één miljard gebruikers na 20 jaar stilte](https://nieuwsvertaald.nl/tech/50131/linkedin-groeit-gestaag-naar-een-miljard-gebruikers-na-20-jaar-stilte)
+
+[Topexpert in AI neemt afscheid bij Google en uit zorgen over kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/50130/topexpert-in-ai-neemt-afscheid-bij-google-en-uit-zorgen-over-kunstmatige-intelligentie)
+
+[Welke bedrijven bepalen de AI-toekomst? Techsector in afwachting.](https://nieuwsvertaald.nl/tech/50129/welke-bedrijven-bepalen-de-ai-toekomst-techsector-in-afwachting)
+
+[Acquisitie van Activision Blizzard door Microsoft afgewezen door Britse regelgever](https://nieuwsvertaald.nl/tech/50124/acquisitie-van-activision-blizzard-door-microsoft-afgewezen-door-britse-regelgever)
+
+[Twintig technologieplatformen onderworpen aan EU-wetten](https://nieuwsvertaald.nl/tech/50109/twintig-technologieplatformen-onderworpen-aan-eu-wetten)
+
+[Oplichting van kinderen met nepmunten bij het gamen op Roblox](https://nieuwsvertaald.nl/tech/50108/oplichting-van-kinderen-met-nepmunten-bij-het-gamen-op-roblox)
+
+[Video-oproepen als antwoord op individuele lonesome papegaaien](https://nieuwsvertaald.nl/tech/50107/video-oproepen-als-antwoord-op-individuele-lonesome-papegaaien)
+
+[Plannen voor regulering van AI in Europa komen nabij: Een overzicht](https://nieuwsvertaald.nl/tech/50098/plannen-voor-regulering-van-ai-in-europa-komen-nabij-een-overzicht)
+
+[Google test nieuwe zoekmachine met AI die zelf kan genereren](https://nieuwsvertaald.nl/tech/50088/google-test-nieuwe-zoekmachine-met-ai-die-zelf-kan-genereren)
+
+[Overleg techfirma's met Witte Huis over risico's AI](https://nieuwsvertaald.nl/tech/50087/overleg-techfirmas-met-witte-huis-over-risicos-ai)
+
+[LinkedIn bereikt bijna één miljard leden na twintig jaar, in relatieve stilte](https://nieuwsvertaald.nl/tech/50086/linkedin-bereikt-bijna-een-miljard-leden-na-twintig-jaar-in-relatieve-stilte)
+
+[Topexpert AI weg bij Google en geeft waarschuwing](https://nieuwsvertaald.nl/tech/50085/topexpert-ai-weg-bij-google-en-geeft-waarschuwing)
+
+[Welke onderneming krijgt de overhand in de wedstrijd van kunstmatige intelligentie? Tech giganten zijn competitief.](https://nieuwsvertaald.nl/tech/50080/welke-onderneming-krijgt-de-overhand-in-de-wedstrijd-van-kunstmatige-intelligentie-tech-giganten-zijn-competitief)
+
+[Overname van Activision Blizzard door Microsoft geweigerd door toezichthouder in VK](https://nieuwsvertaald.nl/tech/50065/overname-van-activision-blizzard-door-microsoft-geweigerd-door-toezichthouder-in-vk)
+
+[Strengere voorschriften EU voor bijna 20 techbedrijven](https://nieuwsvertaald.nl/tech/50064/strengere-voorschriften-eu-voor-bijna-20-techbedrijven)
+
+[Gedupeerde kinderen bij Roblox door frauduleuze virtuele valuta](https://nieuwsvertaald.nl/tech/50063/gedupeerde-kinderen-bij-roblox-door-frauduleuze-virtuele-valuta)
+
+[Oplossing voor eenzame vogels: Videobellen](https://nieuwsvertaald.nl/tech/50062/oplossing-voor-eenzame-vogels-videobellen)
+
+[Google test nieuwe zoekmachine met 'generatieve' kunstmatige intelligentie.](https://nieuwsvertaald.nl/tech/50057/google-test-nieuwe-zoekmachine-met-generatieve-kunstmatige-intelligentie)
+
+[Grote namen in technologie bespreken AI-risico's bij Witte Huis](https://nieuwsvertaald.nl/tech/50043/grote-namen-in-technologie-bespreken-ai-risicos-bij-witte-huis)
+
+[LinkedIn viert twintigjarig bestaan als bijna miljard leden-platform.](https://nieuwsvertaald.nl/tech/50042/linkedin-viert-twintigjarig-bestaan-als-bijna-miljard-leden-platform)
+
+[Pioneer van AI vertrekt bij Google en maakt zich zorgen over kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/50041/pioneer-van-ai-vertrekt-bij-google-en-maakt-zich-zorgen-over-kunstmatige-intelligentie)
+
+[Welk bedrijf gaat de leiding nemen in de AI-competitie? Technologiebedrijven zijn in opperste staat van paraatheid.](https://nieuwsvertaald.nl/tech/50040/welk-bedrijf-gaat-de-leiding-nemen-in-de-ai-competitie-technologiebedrijven-zijn-in-opperste-staat-van-paraatheid)
+
+[Overname van Activision Blizzard door Microsoft geblokkeerd door Britse regulator](https://nieuwsvertaald.nl/tech/50035/overname-van-activision-blizzard-door-microsoft-geblokkeerd-door-britse-regulator)
+
+[Nieuwe regelgeving EU voor bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/50020/nieuwe-regelgeving-eu-voor-bijna-20-techplatforms)
+
+[Opgelichte kinderen door virtuele munten op Roblox gamewebsite](https://nieuwsvertaald.nl/tech/50019/opgelichte-kinderen-door-virtuele-munten-op-roblox-gamewebsite)
+
+[Videochatting als remedie voor geïsoleerde vogels.](https://nieuwsvertaald.nl/tech/50018/videochatting-als-remedie-voor-geisoleerde-vogels)
+
+[Stappen naar Europese AI-regelgeving; plannen uitgestippeld](https://nieuwsvertaald.nl/tech/50015/stappen-naar-europese-ai-regelgeving-plannen-uitgestippeld)
+
+[Google test nieuwe zoekmachine met 'creërende' AI-technologieën](https://nieuwsvertaald.nl/tech/49999/google-test-nieuwe-zoekmachine-met-creerende-ai-technologieen)
+
+[Techbedrijven spreken in Witte Huis over AI-risico's: innovatiebespreking.](https://nieuwsvertaald.nl/tech/49998/techbedrijven-spreken-in-witte-huis-over-ai-risicos-innovatiebespreking)
+
+[LinkedIn bestaat al twee decennia en groeit gestaag richting een miljard leden](https://nieuwsvertaald.nl/tech/49997/linkedin-bestaat-al-twee-decennia-en-groeit-gestaag-richting-een-miljard-leden)
+
+[AI-pionier verlaat Google en trekt aan de bel voor kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/49996/ai-pionier-verlaat-google-en-trekt-aan-de-bel-voor-kunstmatige-intelligentie)
+
+[Welke bedrijven zullen de strijd om de controle over AI winnen? De top van de technische bedrijven is op hun hoede.](https://nieuwsvertaald.nl/tech/49991/welke-bedrijven-zullen-de-strijd-om-de-controle-over-ai-winnen-de-top-van-de-technische-bedrijven-is-op-hun-hoede)
+
+[Regulatoren in VK stoppen Activision Blizzard overname door Microsoft](https://nieuwsvertaald.nl/tech/49976/regulatoren-in-vk-stoppen-activision-blizzard-overname-door-microsoft)
+
+[Strengere voorschriften van de EU van toepassing op bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/49975/strengere-voorschriften-van-de-eu-van-toepassing-op-bijna-20-techplatforms)
+
+[Oplichting van kinderen via virtuele valuta op gameplatform Roblox](https://nieuwsvertaald.nl/tech/49974/oplichting-van-kinderen-via-virtuele-valuta-op-gameplatform-roblox)
+
+[Videocommunicatieverbetering voor geïsoleerde vogels](https://nieuwsvertaald.nl/tech/49973/videocommunicatieverbetering-voor-geisoleerde-vogels)
+
+[Stap naar Wetgeving voor AI in Europa: Dit zijn de Voorgestelde Maatregelen](https://nieuwsvertaald.nl/tech/49968/stap-naar-wetgeving-voor-ai-in-europa-dit-zijn-de-voorgestelde-maatregelen)
+
+[Google probeert nieuwe zoekmachine met geavanceerde AI technologieën uit](https://nieuwsvertaald.nl/tech/49954/google-probeert-nieuwe-zoekmachine-met-geavanceerde-ai-technologieen-uit)
+
+[Bedrijven uit technologiebranche bijeenkomst bij Witte Huis om risico's en kansen AI te bespreken](https://nieuwsvertaald.nl/tech/49953/bedrijven-uit-technologiebranche-bijeenkomst-bij-witte-huis-om-risicos-en-kansen-ai-te-bespreken)
+
+[LinkedIn bereikt bijna miljard leden onopgemerkt na 20 jaar](https://nieuwsvertaald.nl/tech/49952/linkedin-bereikt-bijna-miljard-leden-onopgemerkt-na-20-jaar)
+
+[Vertrek van AI-expert bij Google en bezorgdheid over kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/49951/vertrek-van-ai-expert-bij-google-en-bezorgdheid-over-kunstmatige-intelligentie)
+
+[Welk bedrijf zal zegevieren in de strijd om AI-hegemonie? Techgiganten zijn in opperste staat van paraatheid.](https://nieuwsvertaald.nl/tech/49946/welk-bedrijf-zal-zegevieren-in-de-strijd-om-ai-hegemonie-techgiganten-zijn-in-opperste-staat-van-paraatheid)
+
+[Overnameplan van Microsoft voor Activision Blizzard afgewezen door Britse toezichthouder](https://nieuwsvertaald.nl/tech/49929/overnameplan-van-microsoft-voor-activision-blizzard-afgewezen-door-britse-toezichthouder)
+
+[Europese Unie legt strengere voorwaarden op aan bijna twintig tech platformen](https://nieuwsvertaald.nl/tech/49928/europese-unie-legt-strengere-voorwaarden-op-aan-bijna-twintig-tech-platformen)
+
+[Oplichting van kinderen met digitale munten op Roblox gamesite](https://nieuwsvertaald.nl/tech/49927/oplichting-van-kinderen-met-digitale-munten-op-roblox-gamesite)
+
+[Videogesprekken bieden uitkomst voor eenzame vogels](https://nieuwsvertaald.nl/tech/49926/videogesprekken-bieden-uitkomst-voor-eenzame-vogels)
+
+[LinkedIn bestaat al 20 jaar en heeft bijna een miljard leden: een succes in stilte.](https://nieuwsvertaald.nl/tech/49907/linkedin-bestaat-al-20-jaar-en-heeft-bijna-een-miljard-leden-een-succes-in-stilte)
+
+[Top AI-expert verlaat Google en waarschuwt voor gevaren van AI](https://nieuwsvertaald.nl/tech/49906/top-ai-expert-verlaat-google-en-waarschuwt-voor-gevaren-van-ai)
+
+[Welke bedrijven zullen de overhand krijgen in de AI-wedloop? Techfirma's zijn op hun hoede](https://nieuwsvertaald.nl/tech/49905/welke-bedrijven-zullen-de-overhand-krijgen-in-de-ai-wedloop-techfirmas-zijn-op-hun-hoede)
+
+[Overname van Activision Blizzard door Microsoft afgewezen door Britse regulator](https://nieuwsvertaald.nl/tech/49900/overname-van-activision-blizzard-door-microsoft-afgewezen-door-britse-regulator)
+
+[Strengere EU richtlijnen voor bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/49885/strengere-eu-richtlijnen-voor-bijna-20-techplatforms)
+
+[Kinderen bedrogen met nepgeld op online spelletjesplatform Roblox](https://nieuwsvertaald.nl/tech/49884/kinderen-bedrogen-met-nepgeld-op-online-spelletjesplatform-roblox)
+
+[Oplossing voor verlaten papegaaien: videobellen](https://nieuwsvertaald.nl/tech/49883/oplossing-voor-verlaten-papegaaien-videobellen)
+
+[Twitter schrapt verificatie in blauwe vinkjes vanwege beleidskwesties](https://nieuwsvertaald.nl/tech/49882/twitter-schrapt-verificatie-in-blauwe-vinkjes-vanwege-beleidskwesties)
+
+[AI risico's besproken door techbedrijven in Witte Huis](https://nieuwsvertaald.nl/tech/49877/ai-risicos-besproken-door-techbedrijven-in-witte-huis)
+
+[LinkedIn viert twintigste verjaardag met bijna miljard gebruikers](https://nieuwsvertaald.nl/tech/49863/linkedin-viert-twintigste-verjaardag-met-bijna-miljard-gebruikers)
+
+[Expert in AI verlaat Google en waarschuwt voor toekomstige gevaren van artificiële intelligentie.](https://nieuwsvertaald.nl/tech/49862/expert-in-ai-verlaat-google-en-waarschuwt-voor-toekomstige-gevaren-van-artificiele-intelligentie)
+
+[Welke techgiganten zullen de leiding nemen in de strijd om AI?](https://nieuwsvertaald.nl/tech/49861/welke-techgiganten-zullen-de-leiding-nemen-in-de-strijd-om-ai)
+
+[Overname van Activision Blizzard door Microsoft geblokkeerd door Britse toezichthouder](https://nieuwsvertaald.nl/tech/49860/overname-van-activision-blizzard-door-microsoft-geblokkeerd-door-britse-toezichthouder)
+
+[Strengere EU-regels voor ongeveer twintig tech-netwerken](https://nieuwsvertaald.nl/tech/49851/strengere-eu-regels-voor-ongeveer-twintig-tech-netwerken)
+
+[Oplichting van jonge gamers met virtuele munten op Roblox-spelplatform](https://nieuwsvertaald.nl/tech/49840/oplichting-van-jonge-gamers-met-virtuele-munten-op-roblox-spelplatform)
+
+[Oplossing voor alleenstaande papegaaien: interactief video contact](https://nieuwsvertaald.nl/tech/49839/oplossing-voor-alleenstaande-papegaaien-interactief-video-contact)
+
+['Verifiëringssymbolen van Twitter worden ingetrokken voor geverifieerde accounts'](https://nieuwsvertaald.nl/tech/49838/verifieringssymbolen-van-twitter-worden-ingetrokken-voor-geverifieerde-accounts)
+
+[Google onderzoekt nieuwe zoekmachine met baanbrekende AI-technologie](https://nieuwsvertaald.nl/tech/49833/google-onderzoekt-nieuwe-zoekmachine-met-baanbrekende-ai-technologie)
+
+[Ajax en FC Twente voetbalsters nemen het tegen elkaar op in de finale van de Eredivisie Cup](https://nieuwsvertaald.nl/voetbal/49819/ajax-en-fc-twente-voetbalsters-nemen-het-tegen-elkaar-op-in-de-finale-van-de-eredivisie-cup)
+
+[FC Eindhoven overwint Almere in play-offs dankzij indrukwekkende invalkeeper](https://nieuwsvertaald.nl/voetbal/49818/fc-eindhoven-overwint-almere-in-play-offs-dankzij-indrukwekkende-invalkeeper)
+
+[AI-risico's besproken tijdens ontmoeting techbedrijven in Witte Huis](https://nieuwsvertaald.nl/tech/49817/ai-risicos-besproken-tijdens-ontmoeting-techbedrijven-in-witte-huis)
+
+[LinkedIn: stilletjes uitgegroeid tot bijna miljard gebruikers na 20 jaar](https://nieuwsvertaald.nl/tech/49816/linkedin-stilletjes-uitgegroeid-tot-bijna-miljard-gebruikers-na-20-jaar)
+
+[Google verliest belangrijke AI-speler en ontvangt waarschuwing](https://nieuwsvertaald.nl/tech/49815/google-verliest-belangrijke-ai-speler-en-ontvangt-waarschuwing)
+
+[Technologiereuzen strijden om voordeel in de AI-wedloop](https://nieuwsvertaald.nl/tech/49814/technologiereuzen-strijden-om-voordeel-in-de-ai-wedloop)
+
+[Activision Blizzard overname door Microsoft afgeketst door Britse toezichthouder](https://nieuwsvertaald.nl/tech/49809/activision-blizzard-overname-door-microsoft-afgeketst-door-britse-toezichthouder)
+
+[Nieuwe voorschriften voor ongeveer twintig technologieplatforms binnen de Europese Unie](https://nieuwsvertaald.nl/tech/49794/nieuwe-voorschriften-voor-ongeveer-twintig-technologieplatforms-binnen-de-europese-unie)
+
+[Slachtoffers van frauduleuze virtuele munten op gaming platform Roblox](https://nieuwsvertaald.nl/tech/49793/slachtoffers-van-frauduleuze-virtuele-munten-op-gaming-platform-roblox)
+
+[Videocommunicatie als remedie tegen eenzaamheid onder papegaaien](https://nieuwsvertaald.nl/tech/49792/videocommunicatie-als-remedie-tegen-eenzaamheid-onder-papegaaien)
+
+[Twitter schrapt blauwe badges voor geverifieerde accounts](https://nieuwsvertaald.nl/tech/49791/twitter-schrapt-blauwe-badges-voor-geverifieerde-accounts)
+
+[Google test nieuwe zoekmachine met geavanceerde AI-technologie.](https://nieuwsvertaald.nl/tech/49786/google-test-nieuwe-zoekmachine-met-geavanceerde-ai-technologie)
+
+[Technologiebedrijven bij Witte Huis voor evaluatie van AI-risico's](https://nieuwsvertaald.nl/tech/49772/technologiebedrijven-bij-witte-huis-voor-evaluatie-van-ai-risicos)
+
+[LinkedIn bereikt bijna miljard leden na twintig jaar van organische groei](https://nieuwsvertaald.nl/tech/49771/linkedin-bereikt-bijna-miljard-leden-na-twintig-jaar-van-organische-groei)
+
+[Top AI leider verlaat Google en waarschuwt voor ongeziene bedreigingen](https://nieuwsvertaald.nl/tech/49770/top-ai-leider-verlaat-google-en-waarschuwt-voor-ongeziene-bedreigingen)
+
+[Welk bedrijf wint de strijd om AI? Technologiegiganten in de startblokken.](https://nieuwsvertaald.nl/tech/49769/welk-bedrijf-wint-de-strijd-om-ai-technologiegiganten-in-de-startblokken)
+
+[Overname van Activision Blizzard door Microsoft geblokkeerd door Britse regulator](https://nieuwsvertaald.nl/tech/49764/overname-van-activision-blizzard-door-microsoft-geblokkeerd-door-britse-regulator)
+
+[Nieuwe regels voor bijna twintig techplatforms in EU](https://nieuwsvertaald.nl/tech/49750/nieuwe-regels-voor-bijna-twintig-techplatforms-in-eu)
+
+[Bedrog van jeugd via virtuele valuta op gamesite Roblox](https://nieuwsvertaald.nl/tech/49749/bedrog-van-jeugd-via-virtuele-valuta-op-gamesite-roblox)
+
+[Videocommunicatie als remedie voor geïsoleerde papegaaien](https://nieuwsvertaald.nl/tech/49748/videocommunicatie-als-remedie-voor-geisoleerde-papegaaien)
+
+[Twitter schrapt bevestigingsmarkering voor geverifieerde accounts](https://nieuwsvertaald.nl/tech/49747/twitter-schrapt-bevestigingsmarkering-voor-geverifieerde-accounts)
+
+[Hightechbedrijven gaan naar presidentieel verblijf om risico's AI te overwegen.](https://nieuwsvertaald.nl/tech/49744/hightechbedrijven-gaan-naar-presidentieel-verblijf-om-risicos-ai-te-overwegen)
+
+[Kampioenenliga kansen AS Roma geschaad door Salernitana met teleurstellende uitslag](https://nieuwsvertaald.nl/voetbal/49729/kampioenenliga-kansen-as-roma-geschaad-door-salernitana-met-teleurstellende-uitslag)
+
+[LinkedIn groeit gestaag naar miljard gebruikers: 20-jarig bestaan in stilte gevierd](https://nieuwsvertaald.nl/tech/49728/linkedin-groeit-gestaag-naar-miljard-gebruikers-20-jarig-bestaan-in-stilte-gevierd)
+
+[Leider van AI verlaat Google en waarschuwt voor kunstmatige intelligentie.](https://nieuwsvertaald.nl/tech/49727/leider-van-ai-verlaat-google-en-waarschuwt-voor-kunstmatige-intelligentie)
+
+[Welke bedrijven krijgen de leiding in de strijd om AI? Technologieondernemingen zijn klaar voor actie.](https://nieuwsvertaald.nl/tech/49726/welke-bedrijven-krijgen-de-leiding-in-de-strijd-om-ai-technologieondernemingen-zijn-klaar-voor-actie)
+
+[Brits toezicht voorkomt fusie van Activision Blizzard met Microsoft.](https://nieuwsvertaald.nl/tech/49725/brits-toezicht-voorkomt-fusie-van-activision-blizzard-met-microsoft)
+
+[EU verscherpt regulering techplatforms: bijna 20 vallen onder nieuwe wet](https://nieuwsvertaald.nl/tech/49720/eu-verscherpt-regulering-techplatforms-bijna-20-vallen-onder-nieuwe-wet)
+
+[Exclusieve Vlaamse monnikendrank straks verkrijgbaar in Nederlandse drankwinkels (met toestemming)](https://nieuwsvertaald.nl/instagram/49714/exclusieve-vlaamse-monnikendrank-straks-verkrijgbaar-in-nederlandse-drankwinkels-met-toestemming)
+
+[Kinderen bedrogen door neppe munteenheid op het gameplatform Roblox](https://nieuwsvertaald.nl/tech/49704/kinderen-bedrogen-door-neppe-munteenheid-op-het-gameplatform-roblox)
+
+[Oplossing voor eenzame papegaaien: Contact leggen via videobellen.](https://nieuwsvertaald.nl/tech/49703/oplossing-voor-eenzame-papegaaien-contact-leggen-via-videobellen)
+
+[Geen blauwe vinkjes meer voor geverifieerde gebruikers op Twitter](https://nieuwsvertaald.nl/tech/49702/geen-blauwe-vinkjes-meer-voor-geverifieerde-gebruikers-op-twitter)
+
+[Google test nieuwe zoekmachine met 'generatieve' kunstmatige intelligentie technologie.](https://nieuwsvertaald.nl/tech/49697/google-test-nieuwe-zoekmachine-met-generatieve-kunstmatige-intelligentie-technologie)
+
+[IT-bedrijven overleggen in het Witte Huis over de gevaren van kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/49682/it-bedrijven-overleggen-in-het-witte-huis-over-de-gevaren-van-kunstmatige-intelligentie)
+
+[LinkedIn viert twintigjarig bestaan en verwelkomt bijna miljard leden](https://nieuwsvertaald.nl/tech/49681/linkedin-viert-twintigjarig-bestaan-en-verwelkomt-bijna-miljard-leden)
+
+[Meesterbrein achter AI verlaat Google en waarschuwt voor gevolgen](https://nieuwsvertaald.nl/tech/49680/meesterbrein-achter-ai-verlaat-google-en-waarschuwt-voor-gevolgen)
+
+[Welk bedrijf veroverd de AI-markt? High-tech organisaties scherp op competitie](https://nieuwsvertaald.nl/tech/49679/welk-bedrijf-veroverd-de-ai-markt-high-tech-organisaties-scherp-op-competitie)
+
+[Overname van Activision Blizzard door Microsoft geblokkeerd door Britse regelgevers](https://nieuwsvertaald.nl/tech/49676/overname-van-activision-blizzard-door-microsoft-geblokkeerd-door-britse-regelgevers)
+
+[Het speelschema van de play-offs voor bevordering/degradatie: kom hier in actie!](https://nieuwsvertaald.nl/voetbal/49661/het-speelschema-van-de-play-offs-voor-bevordering-degradatie-kom-hier-in-actie)
+
+["Striktere regels EU voor bijna 20 techplatforms"](https://nieuwsvertaald.nl/tech/49659/striktere-regels-eu-voor-bijna-20-techplatforms)
+
+[Kinderen slachtoffer van bedrog met denkbeeldige munteenheid op Roblox game-platform](https://nieuwsvertaald.nl/tech/49658/kinderen-slachtoffer-van-bedrog-met-denkbeeldige-munteenheid-op-roblox-game-platform)
+
+[Online communicatie redt eenzaamheid onder vogels](https://nieuwsvertaald.nl/tech/49657/online-communicatie-redt-eenzaamheid-onder-vogels)
+
+[Twitter haalt verificatiesymbool weg bij bevestigde accounts](https://nieuwsvertaald.nl/tech/49656/twitter-haalt-verificatiesymbool-weg-bij-bevestigde-accounts)
+
+[Google test nieuwe zoekmachine met AI-genereerde antwoorden](https://nieuwsvertaald.nl/tech/49651/google-test-nieuwe-zoekmachine-met-ai-genereerde-antwoorden)
+
+[Bespreking risico's AI met techbedrijven in Witte Huis](https://nieuwsvertaald.nl/tech/49636/bespreking-risicos-ai-met-techbedrijven-in-witte-huis)
+
+[LinkedIn bestaat al 20 jaar en groeit gestaag naar 1 miljard leden](https://nieuwsvertaald.nl/tech/49635/linkedin-bestaat-al-20-jaar-en-groeit-gestaag-naar-1-miljard-leden)
+
+[Topexpert AI verlaat Google en spreekt zorg uit over kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/49634/topexpert-ai-verlaat-google-en-spreekt-zorg-uit-over-kunstmatige-intelligentie)
+
+[Welk bedrijf wint de strijd om Artificial Intelligence? Technologiebedrijven zijn alert.](https://nieuwsvertaald.nl/tech/49633/welk-bedrijf-wint-de-strijd-om-artificial-intelligence-technologiebedrijven-zijn-alert)
+
+[Overname van Activision Blizzard door Microsoft geblokkeerd door Britse toezichthouder](https://nieuwsvertaald.nl/tech/49628/overname-van-activision-blizzard-door-microsoft-geblokkeerd-door-britse-toezichthouder)
+
+[Techbedrijven moeten voldoen aan strengere EU-regels: bijna 20 platforms onder de loep](https://nieuwsvertaald.nl/tech/49615/techbedrijven-moeten-voldoen-aan-strengere-eu-regels-bijna-20-platforms-onder-de-loep)
+
+[Oplichting van minderjarigen door virtuele valuta op Roblox-platform](https://nieuwsvertaald.nl/tech/49614/oplichting-van-minderjarigen-door-virtuele-valuta-op-roblox-platform)
+
+[Oplossing om eenzaamheid bij papegaaien te verminderen via videochat](https://nieuwsvertaald.nl/tech/49613/oplossing-om-eenzaamheid-bij-papegaaien-te-verminderen-via-videochat)
+
+[Twitter schrapt verificatie van accounts met blauwe vinkjes](https://nieuwsvertaald.nl/tech/49612/twitter-schrapt-verificatie-van-accounts-met-blauwe-vinkjes)
+
+[Google test nieuwe zoekmachine met zelflerende AI technologie.](https://nieuwsvertaald.nl/tech/49606/google-test-nieuwe-zoekmachine-met-zelflerende-ai-technologie)
+
+[Technologiebedrijven in overleg bij de Amerikaanse regering over artificial intelligence risico’s](https://nieuwsvertaald.nl/tech/49594/technologiebedrijven-in-overleg-bij-de-amerikaanse-regering-over-artificial-intelligence-risicos)
+
+[LinkedIn bestaat 20 jaar en verzamelt bijna 1 miljard leden, terwijl het relatief onopgemerkt blijft.](https://nieuwsvertaald.nl/tech/49593/linkedin-bestaat-20-jaar-en-verzamelt-bijna-1-miljard-leden-terwijl-het-relatief-onopgemerkt-blijft)
+
+[Kunstmatige intelligentie-expert verlaat Google en uit bezorgdheid over AI](https://nieuwsvertaald.nl/tech/49592/kunstmatige-intelligentie-expert-verlaat-google-en-uit-bezorgdheid-over-ai)
+
+[Wie zal de AI-race winnen? Concurrentiestrijd tussen technologiebedrijven.](https://nieuwsvertaald.nl/tech/49591/wie-zal-de-ai-race-winnen-concurrentiestrijd-tussen-technologiebedrijven)
+
+[Overname van Activision Blizzard door Microsoft tegengehouden door Britse waakhond](https://nieuwsvertaald.nl/tech/49585/overname-van-activision-blizzard-door-microsoft-tegengehouden-door-britse-waakhond)
+
+[Belgisch kloosterbier binnenkort verkrijgbaar bij Nederlandse drankwinkels (legaal)](https://nieuwsvertaald.nl/economie/49578/belgisch-kloosterbier-binnenkort-verkrijgbaar-bij-nederlandse-drankwinkels-legaal)
+
+[Vrouwelijke algemeen directeur bij MVV: unieke keuze voor Van Leeuwen](https://nieuwsvertaald.nl/voetbal/49570/vrouwelijke-algemeen-directeur-bij-mvv-unieke-keuze-voor-van-leeuwen)
+
+[Strengere Europese regels voor groot aantal tech platforms](https://nieuwsvertaald.nl/tech/49569/strengere-europese-regels-voor-groot-aantal-tech-platforms)
+
+[Kinderen bedrogen door nepmunten op online spelplatform Roblox](https://nieuwsvertaald.nl/tech/49568/kinderen-bedrogen-door-nepmunten-op-online-spelplatform-roblox)
+
+[Oplossing voor papegaaien die zich eenzaam voelen: contact op afstand maken via video.](https://nieuwsvertaald.nl/tech/49567/oplossing-voor-papegaaien-die-zich-eenzaam-voelen-contact-op-afstand-maken-via-video)
+
+[Twitter schrapt verificatie badges voor bevestigde accounts](https://nieuwsvertaald.nl/tech/49566/twitter-schrapt-verificatie-badges-voor-bevestigde-accounts)
+
+[Google test zoekmachine met AI-technologie die zelf content kan genereren](https://nieuwsvertaald.nl/tech/49559/google-test-zoekmachine-met-ai-technologie-die-zelf-content-kan-genereren)
+
+[Geschiedenis geschreven: vrouw aan het roer bij MVV](https://nieuwsvertaald.nl/voetbal/49547/geschiedenis-geschreven-vrouw-aan-het-roer-bij-mvv)
+
+[IT-firma's bezoeken Oval Office om Artificial Intelligence risico's te analyseren.](https://nieuwsvertaald.nl/tech/49546/it-firmas-bezoeken-oval-office-om-artificial-intelligence-risicos-te-analyseren)
+
+[LinkedIn: een onopvallende weg naar bijna één miljard leden na twintig jaar](https://nieuwsvertaald.nl/tech/49545/linkedin-een-onopvallende-weg-naar-bijna-een-miljard-leden-na-twintig-jaar)
+
+['Koploper van AI vertrekt bij Google en geeft bezorgdheid aan over kunstmatige intelligentie'](https://nieuwsvertaald.nl/tech/49544/koploper-van-ai-vertrekt-bij-google-en-geeft-bezorgdheid-aan-over-kunstmatige-intelligentie)
+
+[Welke onderneming zal de voorhoede vormen in de AI-strijd? Concurrentie op scherp gezet.](https://nieuwsvertaald.nl/tech/49543/welke-onderneming-zal-de-voorhoede-vormen-in-de-ai-strijd-concurrentie-op-scherp-gezet)
+
+[Overname van Activision Blizzard door Microsoft in Verenigd Koninkrijk geweigerd door regulator](https://nieuwsvertaald.nl/tech/49537/overname-van-activision-blizzard-door-microsoft-in-verenigd-koninkrijk-geweigerd-door-regulator)
+
+[Nieuwe regels EU voor techplatforms met bijna 20 onder toezicht](https://nieuwsvertaald.nl/tech/49525/nieuwe-regels-eu-voor-techplatforms-met-bijna-20-onder-toezicht)
+
+[Frauduleuze betalingen voor spelletjes op Roblox dupeert minderjarigen](https://nieuwsvertaald.nl/tech/49524/frauduleuze-betalingen-voor-spelletjes-op-roblox-dupeert-minderjarigen)
+
+[Videocommunicatie als remedie voor geïsoleerde papegaaien](https://nieuwsvertaald.nl/tech/49523/videocommunicatie-als-remedie-voor-geisoleerde-papegaaien)
+
+[Twitter schrapt 'verified' badges van gebruikers met een blauw vinkje](https://nieuwsvertaald.nl/tech/49522/twitter-schrapt-verified-badges-van-gebruikers-met-een-blauw-vinkje)
+
+[Drie klimmers uit Nederland overleden na lawine in bergen van Zwitserland](https://nieuwsvertaald.nl/buitenland/49518/drie-klimmers-uit-nederland-overleden-na-lawine-in-bergen-van-zwitserland)
+
+[LinkedIn viert 20-jarig bestaan en behaalt bijna biljoen leden in rustige omgeving](https://nieuwsvertaald.nl/tech/49504/linkedin-viert-20-jarig-bestaan-en-behaalt-bijna-biljoen-leden-in-rustige-omgeving)
+
+[Leider op gebied van AI verlaat Google en waarschuwt voor kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/49503/leider-op-gebied-van-ai-verlaat-google-en-waarschuwt-voor-kunstmatige-intelligentie)
+
+[Techfirma's strijden om dominantie in het AI-tijdperk](https://nieuwsvertaald.nl/tech/49502/techfirmas-strijden-om-dominantie-in-het-ai-tijdperk)
+
+[Microsoft's plannen voor overname van Activision Blizzard afgewezen door Britse autoriteiten](https://nieuwsvertaald.nl/tech/49501/microsofts-plannen-voor-overname-van-activision-blizzard-afgewezen-door-britse-autoriteiten)
+
+[Bijna twintig technologieplatforms onderhevig aan stringentere regelgeving EU.](https://nieuwsvertaald.nl/tech/49495/bijna-twintig-technologieplatforms-onderhevig-aan-stringentere-regelgeving-eu)
+
+[Misleiding van jonge spelers: digitaal geld voor Roblox-spellen](https://nieuwsvertaald.nl/tech/49483/misleiding-van-jonge-spelers-digitaal-geld-voor-roblox-spellen)
+
+[Oplossing voor de eenzaamheid van papegaaien door middel van videobellen](https://nieuwsvertaald.nl/tech/49482/oplossing-voor-de-eenzaamheid-van-papegaaien-door-middel-van-videobellen)
+
+[Twitter schrapt verificatie van blauwe vinkjes voor gebruikers met een account.](https://nieuwsvertaald.nl/tech/49481/twitter-schrapt-verificatie-van-blauwe-vinkjes-voor-gebruikers-met-een-account)
+
+[Nederlanders getroffen door lawine in de bergen van Zwitserland](https://nieuwsvertaald.nl/buitenland/49477/nederlanders-getroffen-door-lawine-in-de-bergen-van-zwitserland)
+
+[Google test nieuwe zoekmachine met innovatieve AI-technologieën](https://nieuwsvertaald.nl/tech/49474/google-test-nieuwe-zoekmachine-met-innovatieve-ai-technologieen)
+
+[AI-gevaren op agenda bij Witte Huis-overleg techsector](https://nieuwsvertaald.nl/tech/49462/ai-gevaren-op-agenda-bij-witte-huis-overleg-techsector)
+
+[LinkedIn viert twintigjarig bestaan en nadert bijna één biljoen leden in alle rust.](https://nieuwsvertaald.nl/tech/49461/linkedin-viert-twintigjarig-bestaan-en-nadert-bijna-een-biljoen-leden-in-alle-rust)
+
+[Meesterbrein van machine intelligentie verlaat Google en bezorgd over AI](https://nieuwsvertaald.nl/tech/49460/meesterbrein-van-machine-intelligentie-verlaat-google-en-bezorgd-over-ai)
+
+[Welk bedrijf triomfeert in de strijd om Artificial Intelligence? Tech-giganten op hoogspanning](https://nieuwsvertaald.nl/tech/49459/welk-bedrijf-triomfeert-in-de-strijd-om-artificial-intelligence-tech-giganten-op-hoogspanning)
+
+[Overname van Activision Blizzard door Microsoft tegengehouden door Britse autoriteiten](https://nieuwsvertaald.nl/tech/49453/overname-van-activision-blizzard-door-microsoft-tegengehouden-door-britse-autoriteiten)
+
+[Strenge EU-voorschriften voor bijna 20 technologieplatforms](https://nieuwsvertaald.nl/tech/49439/strenge-eu-voorschriften-voor-bijna-20-technologieplatforms)
+
+[Oplichting van kinderen met virtuele munten in Roblox spelwereld](https://nieuwsvertaald.nl/tech/49438/oplichting-van-kinderen-met-virtuele-munten-in-roblox-spelwereld)
+
+[Effectieve communicatie voor geïsoleerde papegaaien via video-oproepen](https://nieuwsvertaald.nl/tech/49437/effectieve-communicatie-voor-geisoleerde-papegaaien-via-video-oproepen)
+
+[Twitter schrapt geverifieerde accounts' blauwe badges](https://nieuwsvertaald.nl/tech/49436/twitter-schrapt-geverifieerde-accounts-blauwe-badges)
+
+[Google test een revolutionaire zoekmachine met 'generatieve' AI technologie.](https://nieuwsvertaald.nl/tech/49430/google-test-een-revolutionaire-zoekmachine-met-generatieve-ai-technologie)
+
+[Techgiganten in gesprek met het Witte Huis over de gevaren van kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/49418/techgiganten-in-gesprek-met-het-witte-huis-over-de-gevaren-van-kunstmatige-intelligentie)
+
+[20 jaar geleden gestart, LinkedIn nu bijna miljard leden in stilte gegroeid](https://nieuwsvertaald.nl/tech/49417/20-jaar-geleden-gestart-linkedin-nu-bijna-miljard-leden-in-stilte-gegroeid)
+
+['Leider in AI stapt uit bij Google en deelt waarschuwing over Kunstmatige Intelligentie'](https://nieuwsvertaald.nl/tech/49416/leider-in-ai-stapt-uit-bij-google-en-deelt-waarschuwing-over-kunstmatige-intelligentie)
+
+[Welk bedrijf zal de leiding nemen in de race van AI? Aandachtige techbedrijven.](https://nieuwsvertaald.nl/tech/49415/welk-bedrijf-zal-de-leiding-nemen-in-de-race-van-ai-aandachtige-techbedrijven)
+
+[Overname van Activision Blizzard door Microsoft verhinderd door Britse regelgevende instantie](https://nieuwsvertaald.nl/tech/49409/overname-van-activision-blizzard-door-microsoft-verhinderd-door-britse-regelgevende-instantie)
+
+[Strengere EU regelgeving voor bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/49395/strengere-eu-regelgeving-voor-bijna-20-techplatforms)
+
+[Oplichting van minderjarige gamers met namaakgeld op Roblox](https://nieuwsvertaald.nl/tech/49394/oplichting-van-minderjarige-gamers-met-namaakgeld-op-roblox)
+
+[Nieuw communicatiemiddel voor geïsoleerde papegaaien](https://nieuwsvertaald.nl/tech/49393/nieuw-communicatiemiddel-voor-geisoleerde-papegaaien)
+
+[Twitter schrapt erkenning voor geverifieerde accounts](https://nieuwsvertaald.nl/tech/49392/twitter-schrapt-erkenning-voor-geverifieerde-accounts)
+
+[Google test nieuwe zoekmachine met 'creërende' kunstmatige intelligentie.](https://nieuwsvertaald.nl/tech/49384/google-test-nieuwe-zoekmachine-met-creerende-kunstmatige-intelligentie)
+
+[Carmelo Anthony, basketbalster met faam, zet na 19 jaar NBA zijn carrière stop](https://nieuwsvertaald.nl/sport-overig/49369/carmelo-anthony-basketbalster-met-faam-zet-na-19-jaar-nba-zijn-carriere-stop)
+
+[Grote techfirma's naar presidentieel paleis voor overleg omtrent gevaren van AI](https://nieuwsvertaald.nl/tech/49368/grote-techfirmas-naar-presidentieel-paleis-voor-overleg-omtrent-gevaren-van-ai)
+
+[LinkedIn bestaat al 20 jaar en heeft bijna een miljard leden.](https://nieuwsvertaald.nl/tech/49367/linkedin-bestaat-al-20-jaar-en-heeft-bijna-een-miljard-leden)
+
+[Expert op het gebied van AI verlaat Google en uit zijn zorgen over Kunstmatige Intelligentie](https://nieuwsvertaald.nl/tech/49366/expert-op-het-gebied-van-ai-verlaat-google-en-uit-zijn-zorgen-over-kunstmatige-intelligentie)
+
+[De concurrentiestrijd om AI-dominantie loopt hoog op bij techgiganten](https://nieuwsvertaald.nl/tech/49365/de-concurrentiestrijd-om-ai-dominantie-loopt-hoog-op-bij-techgiganten)
+
+[Toezichthouder in het Verenigd Koninkrijk tegen overname Activision Blizzard door Microsoft](https://nieuwsvertaald.nl/tech/49359/toezichthouder-in-het-verenigd-koninkrijk-tegen-overname-activision-blizzard-door-microsoft)
+
+[Carmelo Anthony sluit NBA-loopbaan na 19 jaar af als basketbalheld](https://nieuwsvertaald.nl/sport-overig/49345/carmelo-anthony-sluit-nba-loopbaan-na-19-jaar-af-als-basketbalheld)
+
+[Techplatforms onderhevig aan strengere regels van EU: bijna twintig in aantal](https://nieuwsvertaald.nl/tech/49344/techplatforms-onderhevig-aan-strengere-regels-van-eu-bijna-twintig-in-aantal)
+
+[Kinderen bedrogen bij gebruik virtuele valuta in Roblox-spelwereld](https://nieuwsvertaald.nl/tech/49343/kinderen-bedrogen-bij-gebruik-virtuele-valuta-in-roblox-spelwereld)
+
+[Videochat als oplossing voor eenzame vogels](https://nieuwsvertaald.nl/tech/49342/videochat-als-oplossing-voor-eenzame-vogels)
+
+[Twitter schrapt verificatiebadges bij bepaalde gebruikers](https://nieuwsvertaald.nl/tech/49341/twitter-schrapt-verificatiebadges-bij-bepaalde-gebruikers)
+
+[LinkedIn bereikt bijna miljard leden na twintig jaar in stilte](https://nieuwsvertaald.nl/tech/49337/linkedin-bereikt-bijna-miljard-leden-na-twintig-jaar-in-stilte)
+
+[Google's machinelerende frontman verlaat het bedrijf en waarschuwt voor ongecontroleerde AI.](https://nieuwsvertaald.nl/tech/49323/googles-machinelerende-frontman-verlaat-het-bedrijf-en-waarschuwt-voor-ongecontroleerde-ai)
+
+[Grote technologiebedrijven op de rand van overwinning in de strijd om AI-dominantie](https://nieuwsvertaald.nl/tech/49322/grote-technologiebedrijven-op-de-rand-van-overwinning-in-de-strijd-om-ai-dominantie)
+
+[Autoriteit keurt samenvoeging Activision Blizzard en Microsoft af](https://nieuwsvertaald.nl/tech/49321/autoriteit-keurt-samenvoeging-activision-blizzard-en-microsoft-af)
+
+[Eerste zomerse dag in Gelders Hupsel met 25 graden in 2023 ontdekt.](https://nieuwsvertaald.nl/instagram/49319/eerste-zomerse-dag-in-gelders-hupsel-met-25-graden-in-2023-ontdekt)
+
+[Strengere EU-regels voor bijna twintig techplatforms](https://nieuwsvertaald.nl/tech/49316/strengere-eu-regels-voor-bijna-twintig-techplatforms)
+
+[Oplichterij met virtuele valuta voor Roblox-games benadeelt kinderen](https://nieuwsvertaald.nl/tech/49301/oplichterij-met-virtuele-valuta-voor-roblox-games-benadeelt-kinderen)
+
+[Vrolijke verlichting voor eenzame vogels door videobellen](https://nieuwsvertaald.nl/tech/49300/vrolijke-verlichting-voor-eenzame-vogels-door-videobellen)
+
+[Twitter schrapt bevestigingsmarkeringen voor geverifieerde accounts](https://nieuwsvertaald.nl/tech/49299/twitter-schrapt-bevestigingsmarkeringen-voor-geverifieerde-accounts)
+
+[Google test nieuwe zoekmachine met 'generatieve' kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/49295/google-test-nieuwe-zoekmachine-met-generatieve-kunstmatige-intelligentie)
+
+[AI-dreigingen besproken door techreuzen bij het Witte Huis](https://nieuwsvertaald.nl/tech/49282/ai-dreigingen-besproken-door-techreuzen-bij-het-witte-huis)
+
+[LinkedIn bestaat al twee decennia en heeft bijna één miljard gebruikers bereikt in alle stilte.](https://nieuwsvertaald.nl/tech/49281/linkedin-bestaat-al-twee-decennia-en-heeft-bijna-een-miljard-gebruikers-bereikt-in-alle-stilte)
+
+[Expert in AI stapt uit Google en waarschuwt voor kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/49280/expert-in-ai-stapt-uit-google-en-waarschuwt-voor-kunstmatige-intelligentie)
+
+[Welke bedrijven zullen de leiding nemen in de strijd om AI? Tech-giganten in de startblokken.](https://nieuwsvertaald.nl/tech/49279/welke-bedrijven-zullen-de-leiding-nemen-in-de-strijd-om-ai-tech-giganten-in-de-startblokken)
+
+[Weerman Gerrit Hiemstra begint klimaatvriendelijke bouwonderneming en verlaat de meteorologische sector na 25 jaar.](https://nieuwsvertaald.nl/media-en-cultuur/49277/weerman-gerrit-hiemstra-begint-klimaatvriendelijke-bouwonderneming-en-verlaat-de-meteorologische-sector-na-25-jaar)
+
+[Britse regelgever weigert Microsoft's verwerving van Activision Blizzard](https://nieuwsvertaald.nl/tech/49274/britse-regelgever-weigert-microsofts-verwerving-van-activision-blizzard)
+
+[Strenge regels EU voor bijna twintig techplatforms](https://nieuwsvertaald.nl/tech/49260/strenge-regels-eu-voor-bijna-twintig-techplatforms)
+
+[Oplichting van jeugd met virtuele munten op Roblox games](https://nieuwsvertaald.nl/tech/49259/oplichting-van-jeugd-met-virtuele-munten-op-roblox-games)
+
+[Videochatten als remedie voor eenzame vogels](https://nieuwsvertaald.nl/tech/49258/videochatten-als-remedie-voor-eenzame-vogels)
+
+[Verificatie badges van Twitter accounts worden verwijderd](https://nieuwsvertaald.nl/tech/49257/verificatie-badges-van-twitter-accounts-worden-verwijderd)
+
+[Overleg tussen Techbedrijven en Witte Huis over AI Risico's](https://nieuwsvertaald.nl/tech/49252/overleg-tussen-techbedrijven-en-witte-huis-over-ai-risicos)
+
+[LinkedIn viert 20 jaar en nadert bijna een miljard gebruikers in stilte.](https://nieuwsvertaald.nl/tech/49238/linkedin-viert-20-jaar-en-nadert-bijna-een-miljard-gebruikers-in-stilte)
+
+[Topexpert AI vertrekt bij Google en benadrukt risico's kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/49237/topexpert-ai-vertrekt-bij-google-en-benadrukt-risicos-kunstmatige-intelligentie)
+
+[Welk bedrijf wint de strijd om AI-heerschappij? Tech-giants worden alert gehouden.](https://nieuwsvertaald.nl/tech/49236/welk-bedrijf-wint-de-strijd-om-ai-heerschappij-tech-giants-worden-alert-gehouden)
+
+[Overname van Activision Blizzard door Microsoft geweigerd door toezichthouder in het Verenigd Koninkrijk](https://nieuwsvertaald.nl/tech/49235/overname-van-activision-blizzard-door-microsoft-geweigerd-door-toezichthouder-in-het-verenigd-koninkrijk)
+
+[Techbedrijven onderworpen aan aangescherpte EU-regels](https://nieuwsvertaald.nl/tech/49230/techbedrijven-onderworpen-aan-aangescherpte-eu-regels)
+
+[Slachtofferrol van minderjarigen bij digitale valuta Roblox game](https://nieuwsvertaald.nl/tech/49215/slachtofferrol-van-minderjarigen-bij-digitale-valuta-roblox-game)
+
+[Videocommunicatie als verlichting voor geïsoleerde kromsnavels](https://nieuwsvertaald.nl/tech/49214/videocommunicatie-als-verlichting-voor-geisoleerde-kromsnavels)
+
+[Twitter haalt bevestigde accounts van blauwe vinkjes af](https://nieuwsvertaald.nl/tech/49213/twitter-haalt-bevestigde-accounts-van-blauwe-vinkjes-af)
+
+[Buzzfeed News ontvangt prijzen na succesvolle periode, ondanks tijdelijke black-out, 'fier op journalistieke prestaties'](https://nieuwsvertaald.nl/tech/49212/buzzfeed-news-ontvangt-prijzen-na-succesvolle-periode-ondanks-tijdelijke-black-out-fier-op-journalistieke-prestaties)
+
+[Bedrijfsleiders ontmoeten presidentiële staf om AI-risico's te adresseren](https://nieuwsvertaald.nl/tech/49207/bedrijfsleiders-ontmoeten-presidentiele-staf-om-ai-risicos-te-adresseren)
+
+[Cavendish vertelt over pensioen met emoties: &#39;Nooit de verjaardag van mijn zoon missen&#39;](https://nieuwsvertaald.nl/wielrennen/49194/cavendish-vertelt-over-pensioen-met-emoties-and-39-nooit-de-verjaardag-van-mijn-zoon-missenand-39)
+
+[LinkedIn viert twintigjarig bestaan met bijna miljard gebruikers](https://nieuwsvertaald.nl/tech/49193/linkedin-viert-twintigjarig-bestaan-met-bijna-miljard-gebruikers)
+
+[Topman op gebied van AI verlaat Google en waarschuwt voor toekomst](https://nieuwsvertaald.nl/tech/49192/topman-op-gebied-van-ai-verlaat-google-en-waarschuwt-voor-toekomst)
+
+[Wie wint de wedstrijd in kunstmatige intelligentie? Technologiebedrijven zijn alert.](https://nieuwsvertaald.nl/tech/49191/wie-wint-de-wedstrijd-in-kunstmatige-intelligentie-technologiebedrijven-zijn-alert)
+
+[Activision Blizzard overname door Microsoft afgewezen door Britse keuringsinstantie](https://nieuwsvertaald.nl/tech/49190/activision-blizzard-overname-door-microsoft-afgewezen-door-britse-keuringsinstantie)
+
+[Eerste Zomerse Dag van 2023 in Hupsel, Gelderland met 25℃.](https://nieuwsvertaald.nl/binnenland/49188/eerste-zomerse-dag-van-2023-in-hupsel-gelderland-met-25)
+
+[Europees beleid verscherpt voor bijna twintig tech platforms](https://nieuwsvertaald.nl/tech/49184/europees-beleid-verscherpt-voor-bijna-twintig-tech-platforms)
+
+[Roblox-gameplatform verstrikt kinderen in virtuele muntsystemen](https://nieuwsvertaald.nl/tech/49170/roblox-gameplatform-verstrikt-kinderen-in-virtuele-muntsystemen)
+
+[Videochatten als remedie voor vereenzaamde papegaaien](https://nieuwsvertaald.nl/tech/49169/videochatten-als-remedie-voor-vereenzaamde-papegaaien)
+
+[Twitter schrapt verificatie door blauw vinkje gebruikers](https://nieuwsvertaald.nl/tech/49168/twitter-schrapt-verificatie-door-blauw-vinkje-gebruikers)
+
+[Buzzfeed News wint prijzen en blijft trots op hun journalistieke werk, zelfs na donkere perioden.](https://nieuwsvertaald.nl/tech/49167/buzzfeed-news-wint-prijzen-en-blijft-trots-op-hun-journalistieke-werk-zelfs-na-donkere-perioden)
+
+[AI-risico's besproken met Witte Huis door techbedrijven](https://nieuwsvertaald.nl/tech/49162/ai-risicos-besproken-met-witte-huis-door-techbedrijven)
+
+[LinkedIn viert twintigjarig bestaan met bijna miljard leden](https://nieuwsvertaald.nl/tech/49148/linkedin-viert-twintigjarig-bestaan-met-bijna-miljard-leden)
+
+[Vertrekkende Godfather van AI bij Google waarschuwt voor kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/49147/vertrekkende-godfather-van-ai-bij-google-waarschuwt-voor-kunstmatige-intelligentie)
+
+[Techreuzen in de race voor AI-dominantie](https://nieuwsvertaald.nl/tech/49146/techreuzen-in-de-race-voor-ai-dominantie)
+
+[Overname van Activision Blizzard door Microsoft geblokkeerd door regelgever in het VK](https://nieuwsvertaald.nl/tech/49145/overname-van-activision-blizzard-door-microsoft-geblokkeerd-door-regelgever-in-het-vk)
+
+[Strengere EU regels gelden voor bijna twintig techplatforms](https://nieuwsvertaald.nl/tech/49140/strengere-eu-regels-gelden-voor-bijna-twintig-techplatforms)
+
+[Kinderen bedrogen met digitale munten op gaming platform Roblox](https://nieuwsvertaald.nl/tech/49125/kinderen-bedrogen-met-digitale-munten-op-gaming-platform-roblox)
+
+[Oplossing voor eenzame papegaaien: communiceren via video](https://nieuwsvertaald.nl/tech/49124/oplossing-voor-eenzame-papegaaien-communiceren-via-video)
+
+[Einde aan geverifieerde accounts op Twitter door verwijdering blauwe vinkjes](https://nieuwsvertaald.nl/tech/49123/einde-aan-geverifieerde-accounts-op-twitter-door-verwijdering-blauwe-vinkjes)
+
+[Buzzfeed News, winnaar van prijzen, staat trots achter hun journalistieke inzet, na donkere periode.](https://nieuwsvertaald.nl/tech/49122/buzzfeed-news-winnaar-van-prijzen-staat-trots-achter-hun-journalistieke-inzet-na-donkere-periode)
+
+[Techbedrijven bespreken gevaren van AI met Witte Huis](https://nieuwsvertaald.nl/tech/49116/techbedrijven-bespreken-gevaren-van-ai-met-witte-huis)
+
+[LinkedIn viert 20-jarig bestaan en bereikt bijna miljard gebruikers met bescheiden succes](https://nieuwsvertaald.nl/tech/49102/linkedin-viert-20-jarig-bestaan-en-bereikt-bijna-miljard-gebruikers-met-bescheiden-succes)
+
+[AI 'Godfather' vertrekt bij Google en waarschuwt voor de gevaren van Kunstmatige Intelligentie](https://nieuwsvertaald.nl/tech/49101/ai-godfather-vertrekt-bij-google-en-waarschuwt-voor-de-gevaren-van-kunstmatige-intelligentie)
+
+[Tech ondernemingen strijden om voordeel in het AI landschap](https://nieuwsvertaald.nl/tech/49100/tech-ondernemingen-strijden-om-voordeel-in-het-ai-landschap)
+
+[Microsoft's poging om Activision Blizzard over te nemen, geweerd door Britse toezichthouder.](https://nieuwsvertaald.nl/tech/49099/microsofts-poging-om-activision-blizzard-over-te-nemen-geweerd-door-britse-toezichthouder)
+
+[Techbedrijven onderhevig aan zwaardere regelgeving EU](https://nieuwsvertaald.nl/tech/49094/techbedrijven-onderhevig-aan-zwaardere-regelgeving-eu)
+
+[Bedrog met digitale munten op gamesite Roblox treft jonge spelers](https://nieuwsvertaald.nl/tech/49080/bedrog-met-digitale-munten-op-gamesite-roblox-treft-jonge-spelers)
+
+[Oplossing voor eenzaamheid van papegaaien met videobellen](https://nieuwsvertaald.nl/tech/49079/oplossing-voor-eenzaamheid-van-papegaaien-met-videobellen)
+
+[Twitter haalt verificatiebadge weg bij accounts met blauwe vinkjes](https://nieuwsvertaald.nl/tech/49078/twitter-haalt-verificatiebadge-weg-bij-accounts-met-blauwe-vinkjes)
+
+[Buzzfeed News, bekroond voor journalistieke uitmuntendheid, keert terug na duistere tijden: een terugkeer om trots op te zijn.](https://nieuwsvertaald.nl/tech/49077/buzzfeed-news-bekroond-voor-journalistieke-uitmuntendheid-keert-terug-na-duistere-tijden-een-terugkeer-om-trots-op-te-zijn)
+
+[Technologie-experts overleggen in het Witte Huis over risico's van AI.](https://nieuwsvertaald.nl/tech/49073/technologie-experts-overleggen-in-het-witte-huis-over-risicos-van-ai)
+
+[20 jaar LinkedIn: van rustig begin tot bijna miljard leden](https://nieuwsvertaald.nl/tech/49059/20-jaar-linkedin-van-rustig-begin-tot-bijna-miljard-leden)
+
+[Topexpert in AI verlaat Google en geeft waarschuwing](https://nieuwsvertaald.nl/tech/49058/topexpert-in-ai-verlaat-google-en-geeft-waarschuwing)
+
+[Welk bedrijf wint de strijd om AI-hegemonie? Technologiebedrijven zijn alert](https://nieuwsvertaald.nl/tech/49057/welk-bedrijf-wint-de-strijd-om-ai-hegemonie-technologiebedrijven-zijn-alert)
+
+[Microsoft's poging tot overname van Activision Blizzard verhinderd door Britse regelgevers](https://nieuwsvertaald.nl/tech/49056/microsofts-poging-tot-overname-van-activision-blizzard-verhinderd-door-britse-regelgevers)
+
+[Meer dan negentien tech-gerelateerde platforms worden onderworpen aan nieuwe regels binnen de Europese Unie](https://nieuwsvertaald.nl/tech/49052/meer-dan-negentien-tech-gerelateerde-platforms-worden-onderworpen-aan-nieuwe-regels-binnen-de-europese-unie)
+
+[Opgelichte kinderen door virtuele munten op Roblox-platform](https://nieuwsvertaald.nl/tech/49038/opgelichte-kinderen-door-virtuele-munten-op-roblox-platform)
+
+[Eenzaamheidsoplossing: Papegaaien in contact brengen middels videobellen](https://nieuwsvertaald.nl/tech/49037/eenzaamheidsoplossing-papegaaien-in-contact-brengen-middels-videobellen)
+
+[Twitter schrapt blauwe merktekens bij goedgekeurde gebruikers](https://nieuwsvertaald.nl/tech/49036/twitter-schrapt-blauwe-merktekens-bij-goedgekeurde-gebruikers)
+
+[Buzzfeed News, winnaar van meerdere prijzen, stopt na succesperiode, 'verheugd over journalistieke prestaties'](https://nieuwsvertaald.nl/tech/49035/buzzfeed-news-winnaar-van-meerdere-prijzen-stopt-na-succesperiode-verheugd-over-journalistieke-prestaties)
+
+[Technologiebedrijven op uitnodiging van het Witte Huis om AI-risico's te bespreken](https://nieuwsvertaald.nl/tech/49031/technologiebedrijven-op-uitnodiging-van-het-witte-huis-om-ai-risicos-te-bespreken)
+
+[LinkedIn groeit in stilte uit tot bijna een miljard leden na 20 jaar](https://nieuwsvertaald.nl/tech/49017/linkedin-groeit-in-stilte-uit-tot-bijna-een-miljard-leden-na-20-jaar)
+
+[Topexpert AI verlaat Google en trekt alarm over artificiële intelligentie](https://nieuwsvertaald.nl/tech/49016/topexpert-ai-verlaat-google-en-trekt-alarm-over-artificiele-intelligentie)
+
+[Welke onderneming wint de strijd om de AI? Bedrijven in de technische sector zijn alert.](https://nieuwsvertaald.nl/tech/49015/welke-onderneming-wint-de-strijd-om-de-ai-bedrijven-in-de-technische-sector-zijn-alert)
+
+[Overname van Activision Blizzard door Microsoft afgewezen door Engelse toezichthouder](https://nieuwsvertaald.nl/tech/49014/overname-van-activision-blizzard-door-microsoft-afgewezen-door-engelse-toezichthouder)
+
+[Nieuwe richtlijnen van EU voor bijna 20 technologieplatforms](https://nieuwsvertaald.nl/tech/49010/nieuwe-richtlijnen-van-eu-voor-bijna-20-technologieplatforms)
+
+[Inspecteurs vinden ontelbare gebreken in abattoirs.](https://nieuwsvertaald.nl/economie/49005/inspecteurs-vinden-ontelbare-gebreken-in-abattoirs)
+
+[Onschuldige kinderen bedrogen door neppe coins op Roblox game platform.](https://nieuwsvertaald.nl/tech/48993/onschuldige-kinderen-bedrogen-door-neppe-coins-op-roblox-game-platform)
+
+[Videochat als remedie tegen eenzame vogels](https://nieuwsvertaald.nl/tech/48992/videochat-als-remedie-tegen-eenzame-vogels)
+
+[Twitter schrapt icoontjes voor geauthentificeerde profielen](https://nieuwsvertaald.nl/tech/48991/twitter-schrapt-icoontjes-voor-geauthentificeerde-profielen)
+
+[Buzzfeed News wint prijzen en gaat door ondanks moeilijke tijden, blijft vasthouden aan journalistieke integriteit](https://nieuwsvertaald.nl/tech/48990/buzzfeed-news-wint-prijzen-en-gaat-door-ondanks-moeilijke-tijden-blijft-vasthouden-aan-journalistieke-integriteit)
+
+['Genie van AI' neemt afscheid van Google en trekt aan de bel over kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/48986/genie-van-ai-neemt-afscheid-van-google-en-trekt-aan-de-bel-over-kunstmatige-intelligentie)
+
+[Zomertransfers Eredivisie: Alles in één overzicht](https://nieuwsvertaald.nl/voetbal/48973/zomertransfers-eredivisie-alles-in-een-overzicht)
+
+[De grootste speler in de wedloop van kunstmatige intelligentie: bedrijven scherpen hun strategieën aan.](https://nieuwsvertaald.nl/tech/48971/de-grootste-speler-in-de-wedloop-van-kunstmatige-intelligentie-bedrijven-scherpen-hun-strategieen-aan)
+
+[Activision Blizzard-overname door Microsoft afgekeurd door Britse regelgever](https://nieuwsvertaald.nl/tech/48970/activision-blizzard-overname-door-microsoft-afgekeurd-door-britse-regelgever)
+
+[Europese Unie stelt strengere regels voor bijna twintig techplatforms](https://nieuwsvertaald.nl/tech/48969/europese-unie-stelt-strengere-regels-voor-bijna-twintig-techplatforms)
+
+[Oplichting met videogame valuta benadeelt Roblox spelende kinderen](https://nieuwsvertaald.nl/tech/48968/oplichting-met-videogame-valuta-benadeelt-roblox-spelende-kinderen)
+
+[Oplossing voor eenzame papegaaien: virtueel communiceren via video](https://nieuwsvertaald.nl/tech/48949/oplossing-voor-eenzame-papegaaien-virtueel-communiceren-via-video)
+
+[Twitter schrapt verificatie-badges voor geverifieerde gebruikers](https://nieuwsvertaald.nl/tech/48948/twitter-schrapt-verificatie-badges-voor-geverifieerde-gebruikers)
+
+[Buzzfeed News na prijzenregen weer terug naar de basis, vol trots op hun journalistieke arbeid](https://nieuwsvertaald.nl/tech/48947/buzzfeed-news-na-prijzenregen-weer-terug-naar-de-basis-vol-trots-op-hun-journalistieke-arbeid)
+
+[Drugslab gevonden in Wezep, drie arrestaties en ontruiming woningen](https://nieuwsvertaald.nl/binnenland/48945/drugslab-gevonden-in-wezep-drie-arrestaties-en-ontruiming-woningen)
+
+[Technologiebedrijven overleggen met Witte Huis over uitdagingen rond AI](https://nieuwsvertaald.nl/tech/48942/technologiebedrijven-overleggen-met-witte-huis-over-uitdagingen-rond-ai)
+
+[LinkedIn bestaat al twintig jaar en heeft bijna een miljard leden bereikt met weinig ophef.](https://nieuwsvertaald.nl/tech/48929/linkedin-bestaat-al-twintig-jaar-en-heeft-bijna-een-miljard-leden-bereikt-met-weinig-ophef)
+
+[Topexpert AI vertrekt bij Google en uit bezorgdheid over kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/48928/topexpert-ai-vertrekt-bij-google-en-uit-bezorgdheid-over-kunstmatige-intelligentie)
+
+[De strijd om de AI-leiding: Welke bedrijven komen als winnaars uit de bus?](https://nieuwsvertaald.nl/tech/48927/de-strijd-om-de-ai-leiding-welke-bedrijven-komen-als-winnaars-uit-de-bus)
+
+[Activision Blizzard overname door Microsoft geblokkeerd door Britse waakhond](https://nieuwsvertaald.nl/tech/48926/activision-blizzard-overname-door-microsoft-geblokkeerd-door-britse-waakhond)
+
+[Nieuwe wetgeving EU strenger voor bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/48921/nieuwe-wetgeving-eu-strenger-voor-bijna-20-techplatforms)
+
+[Fraude met digitale coins schaadt jonge gameroblox-spelers](https://nieuwsvertaald.nl/tech/48906/fraude-met-digitale-coins-schaadt-jonge-gameroblox-spelers)
+
+[De ultieme oplossing voor eenzaamheid onder papegaaien: videobellen](https://nieuwsvertaald.nl/tech/48905/de-ultieme-oplossing-voor-eenzaamheid-onder-papegaaien-videobellen)
+
+[Twitter schrapt erkenningsteken voor geverifieerde gebruikers](https://nieuwsvertaald.nl/tech/48904/twitter-schrapt-erkenningsteken-voor-geverifieerde-gebruikers)
+
+[Buzzfeed News, winnaar van prijzen, blijft trots op hun journalistieke werk na blackoutperiode.](https://nieuwsvertaald.nl/tech/48903/buzzfeed-news-winnaar-van-prijzen-blijft-trots-op-hun-journalistieke-werk-na-blackoutperiode)
+
+[LinkedIn viert jubileum met bijna miljard leden](https://nieuwsvertaald.nl/tech/48899/linkedin-viert-jubileum-met-bijna-miljard-leden)
+
+[Loreen, winnares van het Songfestival, zal in november optreden in Paradiso.](https://nieuwsvertaald.nl/media-en-cultuur/48898/loreen-winnares-van-het-songfestival-zal-in-november-optreden-in-paradiso)
+
+[Brussel legt boete van 1,2 miljard aan Facebook-moederbedrijf op](https://nieuwsvertaald.nl/tech-and-wetenschap/48886/brussel-legt-boete-van-1-2-miljard-aan-facebook-moederbedrijf-op)
+
+[Expert in AI verlaat Google en waarschuwt voor gevolgen](https://nieuwsvertaald.nl/tech/48883/expert-in-ai-verlaat-google-en-waarschuwt-voor-gevolgen)
+
+[Welk bedrijf gaat er vandoor met de AI-trofee? Grote techgiganten zitten op het puntje van hun stoel.](https://nieuwsvertaald.nl/tech/48882/welk-bedrijf-gaat-er-vandoor-met-de-ai-trofee-grote-techgiganten-zitten-op-het-puntje-van-hun-stoel)
+
+[Britse regulator stopt fusie van Microsoft en Activision Blizzard](https://nieuwsvertaald.nl/tech/48881/britse-regulator-stopt-fusie-van-microsoft-en-activision-blizzard)
+
+['EU legt striktere regels op aan bijna twintig techplatforms'](https://nieuwsvertaald.nl/tech/48880/eu-legt-striktere-regels-op-aan-bijna-twintig-techplatforms)
+
+[Oplichting van kinderen via digitale valuta op gaming site Roblox](https://nieuwsvertaald.nl/tech/48876/oplichting-van-kinderen-via-digitale-valuta-op-gaming-site-roblox)
+
+[Techgigant gestraft met miljardenboete door EU](https://nieuwsvertaald.nl/tech-and-wetenschap/48864/techgigant-gestraft-met-miljardenboete-door-eu)
+
+[Videobellen biedt verlichting voor eenzame gevederde vriendjes](https://nieuwsvertaald.nl/tech/48860/videobellen-biedt-verlichting-voor-eenzame-gevederde-vriendjes)
+
+[Twitter laat geverifieerde gebruikers zonder blauwe vinkjes achter](https://nieuwsvertaald.nl/tech/48859/twitter-laat-geverifieerde-gebruikers-zonder-blauwe-vinkjes-achter)
+
+[Buzzfeed News, ooit bekroond, treurt om het einde van een era maar blijft trots op hun journalistieke prestaties.](https://nieuwsvertaald.nl/tech/48858/buzzfeed-news-ooit-bekroond-treurt-om-het-einde-van-een-era-maar-blijft-trots-op-hun-journalistieke-prestaties)
+
+[Nieuwe wetgeving in Europa ter bestrijding van fraude met cryptovaluta](https://nieuwsvertaald.nl/tech/48857/nieuwe-wetgeving-in-europa-ter-bestrijding-van-fraude-met-cryptovaluta)
+
+[Serpent van 2-meter veroorzaakt tumult bij buitenfeest in Gelderland's Zeddam](https://nieuwsvertaald.nl/binnenland/48855/serpent-van-2-meter-veroorzaakt-tumult-bij-buitenfeest-in-gelderlands-zeddam)
+
+[20-jarig bestaan van LinkedIn brengt succes en groei naar bijna een miljard gebruikers](https://nieuwsvertaald.nl/tech/48852/20-jarig-bestaan-van-linkedin-brengt-succes-en-groei-naar-bijna-een-miljard-gebruikers)
+
+['Pionier van digitale intelligentie' vertrekt bij Google en uit bezorgdheid over AI](https://nieuwsvertaald.nl/tech/48838/pionier-van-digitale-intelligentie-vertrekt-bij-google-en-uit-bezorgdheid-over-ai)
+
+[Wie wint de wedloop naar AI-heerschappij? Techgiganten in de startblokken.](https://nieuwsvertaald.nl/tech/48837/wie-wint-de-wedloop-naar-ai-heerschappij-techgiganten-in-de-startblokken)
+
+[Akkoord van Britse toezichthouder verhindert overname Activision Blizzard door Microsoft](https://nieuwsvertaald.nl/tech/48836/akkoord-van-britse-toezichthouder-verhindert-overname-activision-blizzard-door-microsoft)
+
+[Twintigtal techplatforms onderhevig aan Europese Unie's strengere voorschriften](https://nieuwsvertaald.nl/tech/48835/twintigtal-techplatforms-onderhevig-aan-europese-unies-strengere-voorschriften)
+
+[Gedupeerde kinderen door 'in-game' valuta op gameplatform Roblox](https://nieuwsvertaald.nl/tech/48831/gedupeerde-kinderen-door-in-game-valuta-op-gameplatform-roblox)
+
+[Videochat voor papegaaien die zich eenzaam voelen](https://nieuwsvertaald.nl/tech/48816/videochat-voor-papegaaien-die-zich-eenzaam-voelen)
+
+[Twitter schrapt checkmark voor geverifieerde accounts](https://nieuwsvertaald.nl/tech/48815/twitter-schrapt-checkmark-voor-geverifieerde-accounts)
+
+[Kroonjuweel Buzzfeed Nieuws sluit af na succesvolle periode, 'voldaan over verslaggeving'](https://nieuwsvertaald.nl/tech/48814/kroonjuweel-buzzfeed-nieuws-sluit-af-na-succesvolle-periode-voldaan-over-verslaggeving)
+
+[Nieuwe wettelijke maatregelen in Europa betreffende bestrijding van cryptografie-gerelateerde oplichting](https://nieuwsvertaald.nl/tech/48813/nieuwe-wettelijke-maatregelen-in-europa-betreffende-bestrijding-van-cryptografie-gerelateerde-oplichting)
+
+[LinkedIn: Van Laag Profiel tot Bijna een Miljard Leden na 20 Jaar](https://nieuwsvertaald.nl/tech/48809/linkedin-van-laag-profiel-tot-bijna-een-miljard-leden-na-20-jaar)
+
+[Stijgende vraag naar vliegreizen doet Ryanair prijzen verhogen](https://nieuwsvertaald.nl/economie/48804/stijgende-vraag-naar-vliegreizen-doet-ryanair-prijzen-verhogen)
+
+[Topexpert KI stapt op bij Google en uit zorgen over AI](https://nieuwsvertaald.nl/tech/48795/topexpert-ki-stapt-op-bij-google-en-uit-zorgen-over-ai)
+
+[Welke onderneming wint de strijd om AI-suprematie? Technologiebedrijven klaar voor actie](https://nieuwsvertaald.nl/tech/48794/welke-onderneming-wint-de-strijd-om-ai-suprematie-technologiebedrijven-klaar-voor-actie)
+
+[Overname van Activision Blizzard door Microsoft afgekeurd door Britse instantie](https://nieuwsvertaald.nl/tech/48793/overname-van-activision-blizzard-door-microsoft-afgekeurd-door-britse-instantie)
+
+[Striktere voorschriften EU voor bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/48792/striktere-voorschriften-eu-voor-bijna-20-techplatforms)
+
+[Oplichting van minderjarigen via virtueel geld voor spelomgeving Roblox.](https://nieuwsvertaald.nl/tech/48790/oplichting-van-minderjarigen-via-virtueel-geld-voor-spelomgeving-roblox)
+
+[Schema van start play-offs voor bevordering/degradatie: agenda vandaag beschikbaar](https://nieuwsvertaald.nl/voetbal/48773/schema-van-start-play-offs-voor-bevordering-degradatie-agenda-vandaag-beschikbaar)
+
+[Koepka wint golfkampioenschap voor vijfde grote prijs, Block behaalt de vijftiende overwinning als coach](https://nieuwsvertaald.nl/sport-overig/48771/koepka-wint-golfkampioenschap-voor-vijfde-grote-prijs-block-behaalt-de-vijftiende-overwinning-als-coach)
+
+[Nieuwe manier van communiceren voor geïsoleerde papegaaien](https://nieuwsvertaald.nl/tech/48770/nieuwe-manier-van-communiceren-voor-geisoleerde-papegaaien)
+
+[Twitter verwijdert verificatietekens voor bevestigde accounts](https://nieuwsvertaald.nl/tech/48769/twitter-verwijdert-verificatietekens-voor-bevestigde-accounts)
+
+[Buzzfeed News, winnaar van prestigieuze prijzen, sluit na succesperiode, blije terugblik op het vakgebied](https://nieuwsvertaald.nl/tech/48768/buzzfeed-news-winnaar-van-prestigieuze-prijzen-sluit-na-succesperiode-blije-terugblik-op-het-vakgebied)
+
+[Nieuwe wetgeving in Europa om fraude met crypto te voorkomen.](https://nieuwsvertaald.nl/tech/48767/nieuwe-wetgeving-in-europa-om-fraude-met-crypto-te-voorkomen)
+
+["Topfiguur in AI verlaat Google en uit zorgen over kunstmatige intelligentie"](https://nieuwsvertaald.nl/tech/48763/topfiguur-in-ai-verlaat-google-en-uit-zorgen-over-kunstmatige-intelligentie)
+
+[Techreuzen strijden om leiding in de AI-wedloop](https://nieuwsvertaald.nl/tech/48750/techreuzen-strijden-om-leiding-in-de-ai-wedloop)
+
+[Overname van Activision Blizzard door Microsoft afgewezen door Britse toezichthouder](https://nieuwsvertaald.nl/tech/48749/overname-van-activision-blizzard-door-microsoft-afgewezen-door-britse-toezichthouder)
+
+[Bijna 20 digitale platforms onderhevig aan nieuwe EU-regels](https://nieuwsvertaald.nl/tech/48748/bijna-20-digitale-platforms-onderhevig-aan-nieuwe-eu-regels)
+
+[Roblox-gameplatform verleidt kinderen tot aanschaf virtueel geld en bezorgt ze financiële last.](https://nieuwsvertaald.nl/tech/48744/roblox-gameplatform-verleidt-kinderen-tot-aanschaf-virtueel-geld-en-bezorgt-ze-financiele-last)
+
+[Oplossing voor eenzame vogels: Contact maken met videobellen.](https://nieuwsvertaald.nl/tech/48728/oplossing-voor-eenzame-vogels-contact-maken-met-videobellen)
+
+[Twitter neemt blauwe checkmarks weg bij gecontroleerde accounts](https://nieuwsvertaald.nl/tech/48727/twitter-neemt-blauwe-checkmarks-weg-bij-gecontroleerde-accounts)
+
+[Buzzfeed News, een geprezen journalistiek werk, na glorieuze jaren offline: wees trots! (59 tekens)](https://nieuwsvertaald.nl/tech/48726/buzzfeed-news-een-geprezen-journalistiek-werk-na-glorieuze-jaren-offline-wees-trots-59-tekens)
+
+[Nieuwe wetgeving in Europa gericht op het bestrijden van cryptografische oplichting](https://nieuwsvertaald.nl/tech/48725/nieuwe-wetgeving-in-europa-gericht-op-het-bestrijden-van-cryptografische-oplichting)
+
+[Leider in AI verlaat Google en waarschuwt voor technologie](https://nieuwsvertaald.nl/tech/48721/leider-in-ai-verlaat-google-en-waarschuwt-voor-technologie)
+
+[It's a tight race to conquer AI: Fierce competition among tech giants](https://nieuwsvertaald.nl/tech/48708/its-a-tight-race-to-conquer-ai-fierce-competition-among-tech-giants)
+
+[Overname van Activision Blizzard door Microsoft afgewezen door Britse regulator](https://nieuwsvertaald.nl/tech/48707/overname-van-activision-blizzard-door-microsoft-afgewezen-door-britse-regulator)
+
+["Strengere regelgeving EU geldt voor bijna twintig techplatforms"](https://nieuwsvertaald.nl/tech/48706/strengere-regelgeving-eu-geldt-voor-bijna-twintig-techplatforms)
+
+[Kinderen bedrogen door digitale munten op Roblox gameplatform](https://nieuwsvertaald.nl/tech/48703/kinderen-bedrogen-door-digitale-munten-op-roblox-gameplatform)
+
+[Oplossing voor eenzame vogels: videobellen](https://nieuwsvertaald.nl/tech/48685/oplossing-voor-eenzame-vogels-videobellen)
+
+[Verificatie-symbolen van Twitter gebruikers worden verwijderd](https://nieuwsvertaald.nl/tech/48684/verificatie-symbolen-van-twitter-gebruikers-worden-verwijderd)
+
+[Buzzfeed News, bekroonde nieuwspagina na succesvolle periode, verheugt zich op voortzetten van kwalitatieve journalistiek.](https://nieuwsvertaald.nl/tech/48683/buzzfeed-news-bekroonde-nieuwspagina-na-succesvolle-periode-verheugt-zich-op-voortzetten-van-kwalitatieve-journalistiek)
+
+[Microsoft's beoogde aankoop van Activision Blizzard afgekeurd door Britse regelgever](https://nieuwsvertaald.nl/tech/48664/microsofts-beoogde-aankoop-van-activision-blizzard-afgekeurd-door-britse-regelgever)
+
+[Strengere regels voor bijna 20 Europese techplatforms](https://nieuwsvertaald.nl/tech/48663/strengere-regels-voor-bijna-20-europese-techplatforms)
+
+[Roblox gameplatform laat kinderen geloven in virtuele muntjes en licht hen op](https://nieuwsvertaald.nl/tech/48662/roblox-gameplatform-laat-kinderen-geloven-in-virtuele-muntjes-en-licht-hen-op)
+
+[Videocommunicatie als remedie tegen eenzaamheid bij gevederde vriendjes.](https://nieuwsvertaald.nl/tech/48658/videocommunicatie-als-remedie-tegen-eenzaamheid-bij-gevederde-vriendjes)
+
+[Geverifieerde gebruikers op Twitter verliezen blauwe badge](https://nieuwsvertaald.nl/tech/48641/geverifieerde-gebruikers-op-twitter-verliezen-blauwe-badge)
+
+[Buzzfeed News, bekroond voor excellentie, zwijgt, maar blijft toegewijd aan journalistieke kwaliteit](https://nieuwsvertaald.nl/tech/48640/buzzfeed-news-bekroond-voor-excellentie-zwijgt-maar-blijft-toegewijd-aan-journalistieke-kwaliteit)
+
+[Nieuwe wetgeving in Europa om oplichting met cryptocurrency te bestrijden.](https://nieuwsvertaald.nl/tech/48639/nieuwe-wetgeving-in-europa-om-oplichting-met-cryptocurrency-te-bestrijden)
+
+[Pionier in AI verlaat Google en uit bezorgdheid over kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/48635/pionier-in-ai-verlaat-google-en-uit-bezorgdheid-over-kunstmatige-intelligentie)
+
+[De rivaliteit tussen Tech-bedrijven Wie zal uiteindelijk zegevieren in de AI-wedloop?](https://nieuwsvertaald.nl/tech/48621/de-rivaliteit-tussen-tech-bedrijven-wie-zal-uiteindelijk-zegevieren-in-de-ai-wedloop)
+
+[Overname van Activision Blizzard door Microsoft geweigerd door Britse toezichthouder](https://nieuwsvertaald.nl/tech/48620/overname-van-activision-blizzard-door-microsoft-geweigerd-door-britse-toezichthouder)
+
+[Strengere voorschriften EU voor ongeveer 20 technologieplatforms](https://nieuwsvertaald.nl/tech/48619/strengere-voorschriften-eu-voor-ongeveer-20-technologieplatforms)
+
+[Slachtoffers van frauduleuze virtuele munten op Roblox's gameplatform](https://nieuwsvertaald.nl/tech/48618/slachtoffers-van-frauduleuze-virtuele-munten-op-robloxs-gameplatform)
+
+[Videogesprekken als antwoord op de eenzaamheid van papegaaien.](https://nieuwsvertaald.nl/tech/48614/videogesprekken-als-antwoord-op-de-eenzaamheid-van-papegaaien)
+
+[Twitter neemt afstand van blauwe markeringen voor gecontroleerde accounts.](https://nieuwsvertaald.nl/tech/48600/twitter-neemt-afstand-van-blauwe-markeringen-voor-gecontroleerde-accounts)
+
+[Buzzfeed News gekroond met prijzen, journalisten mogen trots zijn na een periode van inactiviteit op de website.](https://nieuwsvertaald.nl/tech/48599/buzzfeed-news-gekroond-met-prijzen-journalisten-mogen-trots-zijn-na-een-periode-van-inactiviteit-op-de-website)
+
+[Nieuwe Europese maatregelen om fraude met cryptocurrency te voorkomen.](https://nieuwsvertaald.nl/tech/48598/nieuwe-europese-maatregelen-om-fraude-met-cryptocurrency-te-voorkomen)
+
+[Politie arresteert twee personen in verband met mogelijke drugslaboratorium in Wezep en dwingt evacuatie van huizen af](https://nieuwsvertaald.nl/binnenland/48596/politie-arresteert-twee-personen-in-verband-met-mogelijke-drugslaboratorium-in-wezep-en-dwingt-evacuatie-van-huizen-af)
+
+['Leider van AI-industrie' verlaat Google en waarschuwt voor kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/48593/leider-van-ai-industrie-verlaat-google-en-waarschuwt-voor-kunstmatige-intelligentie)
+
+[Welk bedrijf triomfeert in de opkomende AI-wedstrijd? Een competitie tussen tech-reuzen.](https://nieuwsvertaald.nl/tech/48579/welk-bedrijf-triomfeert-in-de-opkomende-ai-wedstrijd-een-competitie-tussen-tech-reuzen)
+
+[Activision Blizzard overname door Microsoft in VK afgekeurd](https://nieuwsvertaald.nl/tech/48578/activision-blizzard-overname-door-microsoft-in-vk-afgekeurd)
+
+[Strengere regels EU van toepassing op bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/48577/strengere-regels-eu-van-toepassing-op-bijna-20-techplatforms)
+
+[Oplichterij met virtuele munten treft kinderen op Roblox platform](https://nieuwsvertaald.nl/tech/48576/oplichterij-met-virtuele-munten-treft-kinderen-op-roblox-platform)
+
+[Oplossing voor eenzame papegaaien: videochatten](https://nieuwsvertaald.nl/tech/48572/oplossing-voor-eenzame-papegaaien-videochatten)
+
+[Verminderd vertrouwen in economie door consumenten binnen maand](https://nieuwsvertaald.nl/economie/48567/verminderd-vertrouwen-in-economie-door-consumenten-binnen-maand)
+
+[Blauwe vinkjes bij geverifieerde Twitter accounts worden verwijderd](https://nieuwsvertaald.nl/tech/48556/blauwe-vinkjes-bij-geverifieerde-twitter-accounts-worden-verwijderd)
+
+[Buzzfeed News met succesvolle periode achter rug, nu kortstondig offline wegens trots op journalistieke prestaties.](https://nieuwsvertaald.nl/tech/48555/buzzfeed-news-met-succesvolle-periode-achter-rug-nu-kortstondig-offline-wegens-trots-op-journalistieke-prestaties)
+
+[Nieuwe wetgeving in Europa gericht op het bestrijden van fraude in de cryptowereld](https://nieuwsvertaald.nl/tech/48554/nieuwe-wetgeving-in-europa-gericht-op-het-bestrijden-van-fraude-in-de-cryptowereld)
+
+[Twintig jaar van bescheidenheid naar bijna één miljard LinkedIn-leden](https://nieuwsvertaald.nl/tech/48550/twintig-jaar-van-bescheidenheid-naar-bijna-een-miljard-linkedin-leden)
+
+[Slimme keukenapparatuur, toch nog zelf inruimen van vaatwasser](https://nieuwsvertaald.nl/tech-and-wetenschap/48538/slimme-keukenapparatuur-toch-nog-zelf-inruimen-van-vaatwasser)
+
+[Expert op gebied van AI vertrekt bij Google en uit zorgen over kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/48536/expert-op-gebied-van-ai-vertrekt-bij-google-en-uit-zorgen-over-kunstmatige-intelligentie)
+
+[Techgiganten scherp in strijd om dominantie binnen AI-race](https://nieuwsvertaald.nl/tech/48535/techgiganten-scherp-in-strijd-om-dominantie-binnen-ai-race)
+
+[Overname van Activision Blizzard door Microsoft verboden door Britse waakhond](https://nieuwsvertaald.nl/tech/48534/overname-van-activision-blizzard-door-microsoft-verboden-door-britse-waakhond)
+
+[Striktere voorschriften voor 20 techplatforms van Europese Unie](https://nieuwsvertaald.nl/tech/48533/striktere-voorschriften-voor-20-techplatforms-van-europese-unie)
+
+[Roblox gameplatform bedriegt kinderen met valse virtuele muntjes](https://nieuwsvertaald.nl/tech/48528/roblox-gameplatform-bedriegt-kinderen-met-valse-virtuele-muntjes)
+
+[Videobellen brengt verlichting voor eenzame vogel.](https://nieuwsvertaald.nl/tech/48513/videobellen-brengt-verlichting-voor-eenzame-vogel)
+
+[Twitter schrapt verificatie voor getoetste accounts.](https://nieuwsvertaald.nl/tech/48512/twitter-schrapt-verificatie-voor-getoetste-accounts)
+
+[Buzzfeed News, succesvolle tijden achter de rug, nu in het duister; toewijding aan hoge journalistieke standaarden.](https://nieuwsvertaald.nl/tech/48511/buzzfeed-news-succesvolle-tijden-achter-de-rug-nu-in-het-duister-toewijding-aan-hoge-journalistieke-standaarden)
+
+[Nieuwe Europese wetgeving om misbruik van cryptografie te voorkomen](https://nieuwsvertaald.nl/tech/48510/nieuwe-europese-wetgeving-om-misbruik-van-cryptografie-te-voorkomen)
+
+[LinkedIn groeit gestaag naar één miljard leden na 20 jaar in de schaduw.](https://nieuwsvertaald.nl/tech/48505/linkedin-groeit-gestaag-naar-een-miljard-leden-na-20-jaar-in-de-schaduw)
+
+[Expert in AI verlaat Google en adviseert voorzichtigheid bij gebruik van kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/48491/expert-in-ai-verlaat-google-en-adviseert-voorzichtigheid-bij-gebruik-van-kunstmatige-intelligentie)
+
+[Welk bedrijf zal aan de top komen van de wedloop in Artificial Intelligence? Technologische bedrijven zijn geïnteresseerd.](https://nieuwsvertaald.nl/tech/48490/welk-bedrijf-zal-aan-de-top-komen-van-de-wedloop-in-artificial-intelligence-technologische-bedrijven-zijn-geinteresseerd)
+
+[Activision Blizzard overname door Microsoft geweigerd door Britse Autoriteit](https://nieuwsvertaald.nl/tech/48489/activision-blizzard-overname-door-microsoft-geweigerd-door-britse-autoriteit)
+
+[Europese Unie legt strengere regels op aan bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/48488/europese-unie-legt-strengere-regels-op-aan-bijna-20-techplatforms)
+
+[Virtueel speelgoed pleegt fraude op Roblox-platform met kinderen](https://nieuwsvertaald.nl/tech/48483/virtueel-speelgoed-pleegt-fraude-op-roblox-platform-met-kinderen)
+
+[Videoconferentie voor verlaten vogels](https://nieuwsvertaald.nl/tech/48470/videoconferentie-voor-verlaten-vogels)
+
+[Blauwe vinkjes niet meer beschikbaar voor geverifieerde Twitter-accounthouders](https://nieuwsvertaald.nl/tech/48469/blauwe-vinkjes-niet-meer-beschikbaar-voor-geverifieerde-twitter-accounthouders)
+
+[Buzzfeed News, met prijzen bekroond, gaat in een periode van inkeer na glorieuze jaren, 'ontzettend trots op hun journalistieke arbeid'](https://nieuwsvertaald.nl/tech/48468/buzzfeed-news-met-prijzen-bekroond-gaat-in-een-periode-van-inkeer-na-glorieuze-jaren-ontzettend-trots-op-hun-journalistieke-arbeid)      
+
+[Nieuwe wetgeving in Europa om crypto-fraude te bestrijden](https://nieuwsvertaald.nl/tech/48467/nieuwe-wetgeving-in-europa-om-crypto-fraude-te-bestrijden)
+
+[LinkedIn viert 20-jarig bestaan met bijna miljard leden in de stilte van het succes.](https://nieuwsvertaald.nl/tech/48461/linkedin-viert-20-jarig-bestaan-met-bijna-miljard-leden-in-de-stilte-van-het-succes)
+
+[Daling huizenprijzen blijft derde maand op rij aanhouden in april](https://nieuwsvertaald.nl/algemeen/48456/daling-huizenprijzen-blijft-derde-maand-op-rij-aanhouden-in-april)
+
+[Vertrek 'Godfather AI' van Google waarschuwt voor kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/48446/vertrek-godfather-ai-van-google-waarschuwt-voor-kunstmatige-intelligentie)
+
+[Welk techbedrijf zal zegevieren in de strijd om AI-dominantie?](https://nieuwsvertaald.nl/tech/48445/welk-techbedrijf-zal-zegevieren-in-de-strijd-om-ai-dominantie)
+
+[Britse regulator stopt overname van Activision Blizzard door Microsoft](https://nieuwsvertaald.nl/tech/48444/britse-regulator-stopt-overname-van-activision-blizzard-door-microsoft)
+
+[Strengere EU-regels van toepassing op bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/48443/strengere-eu-regels-van-toepassing-op-bijna-20-techplatforms)
+
+[Virtueel geld opgelicht bij jonge Roblox-spelers](https://nieuwsvertaald.nl/tech/48438/virtueel-geld-opgelicht-bij-jonge-roblox-spelers)
+
+[Oplossing voor isolement van papegaaien: videochatten](https://nieuwsvertaald.nl/tech/48422/oplossing-voor-isolement-van-papegaaien-videochatten)
+
+[Verificatie badges van Twitter-gebruikers worden nu verwijderd](https://nieuwsvertaald.nl/tech/48421/verificatie-badges-van-twitter-gebruikers-worden-nu-verwijderd)
+
+[Bekroond Buzzfeed Nieuws sluit na succesvolle periode, blijft verheven over kwaliteit journalistiek.](https://nieuwsvertaald.nl/tech/48420/bekroond-buzzfeed-nieuws-sluit-na-succesvolle-periode-blijft-verheven-over-kwaliteit-journalistiek)
+
+[Nieuwe regels in Europa ter bestrijding van fraude in cryptomunten](https://nieuwsvertaald.nl/tech/48419/nieuwe-regels-in-europa-ter-bestrijding-van-fraude-in-cryptomunten)
+
+[LinkedIn viert twintigste verjaardag en groeit gestaag naar miljard leden](https://nieuwsvertaald.nl/tech/48414/linkedin-viert-twintigste-verjaardag-en-groeit-gestaag-naar-miljard-leden)
+
+['Architect van AI neemt afscheid van Google en deelt waarschuwing omtrent kunstmatige intelligentie'](https://nieuwsvertaald.nl/tech/48400/architect-van-ai-neemt-afscheid-van-google-en-deelt-waarschuwing-omtrent-kunstmatige-intelligentie)
+
+[Techondernemingen zijn nerveus: welke organisatie zal zegevieren in de strijd om AI-technologie?](https://nieuwsvertaald.nl/tech/48399/techondernemingen-zijn-nerveus-welke-organisatie-zal-zegevieren-in-de-strijd-om-ai-technologie)
+
+[Overname van Activision Blizzard door Microsoft geweigerd door Britse toezichthouder](https://nieuwsvertaald.nl/tech/48398/overname-van-activision-blizzard-door-microsoft-geweigerd-door-britse-toezichthouder)
+
+[Strengere regels voor bijna twintig techplatforms vanuit Europese Unie](https://nieuwsvertaald.nl/tech/48397/strengere-regels-voor-bijna-twintig-techplatforms-vanuit-europese-unie)
+
+[Slachtoffer van oplichting: Kinderen verleid met digitale valuta op Roblox spelomgeving](https://nieuwsvertaald.nl/tech/48393/slachtoffer-van-oplichting-kinderen-verleid-met-digitale-valuta-op-roblox-spelomgeving)
+
+[Oplossing voor eenzame vogels: videobellen](https://nieuwsvertaald.nl/tech/48378/oplossing-voor-eenzame-vogels-videobellen)
+
+[Twitter schrapt bevestigingsbadges voor geverifieerde accounts.](https://nieuwsvertaald.nl/tech/48377/twitter-schrapt-bevestigingsbadges-voor-geverifieerde-accounts)
+
+[Buzzfeed News, succesvol bekroond en klaar voor een nieuw hoofdstuk, ondanks periode van stilte.](https://nieuwsvertaald.nl/tech/48376/buzzfeed-news-succesvol-bekroond-en-klaar-voor-een-nieuw-hoofdstuk-ondanks-periode-van-stilte)
+
+[Nieuwe wetgeving in Europa om oplichting met cryptocurrency te bestrijden](https://nieuwsvertaald.nl/tech/48375/nieuwe-wetgeving-in-europa-om-oplichting-met-cryptocurrency-te-bestrijden)
+
+[Inspirator achter AI vertrekt bij Google en uit bezorgdheid voor kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/48371/inspirator-achter-ai-vertrekt-bij-google-en-uit-bezorgdheid-voor-kunstmatige-intelligentie)
+
+[Derde achtereenvolgende maand lagere huizenprijzen in april](https://nieuwsvertaald.nl/algemeen/48366/derde-achtereenvolgende-maand-lagere-huizenprijzen-in-april)
+
+[De strijd om de controle van AI; spannende tijden voor tech giganten](https://nieuwsvertaald.nl/tech/48355/de-strijd-om-de-controle-van-ai-spannende-tijden-voor-tech-giganten)
+
+[Overname Activision Blizzard door Microsoft geweigerd door Britse autoriteit](https://nieuwsvertaald.nl/tech/48354/overname-activision-blizzard-door-microsoft-geweigerd-door-britse-autoriteit)
+
+[Techplatforms in Europa onderworpen aan stricter beleid van EU](https://nieuwsvertaald.nl/tech/48353/techplatforms-in-europa-onderworpen-aan-stricter-beleid-van-eu)
+
+[Roblox-malafide praktijken richten zich op kinderen met nepmunteenheden](https://nieuwsvertaald.nl/tech/48352/roblox-malafide-praktijken-richten-zich-op-kinderen-met-nepmunteenheden)
+
+[Eenzaamheid verleden tijd voor papegaaien met videochat](https://nieuwsvertaald.nl/tech/48348/eenzaamheid-verleden-tijd-voor-papegaaien-met-videochat)
+
+[Twitter schrapt bevestigingsbadges voor geverifieerde accounts](https://nieuwsvertaald.nl/tech/48332/twitter-schrapt-bevestigingsbadges-voor-geverifieerde-accounts)
+
+[Buzzfeed Nieuws, winnaar van prijzen, blijft trots op hun journalistieke prestaties na een donkere periode.](https://nieuwsvertaald.nl/tech/48331/buzzfeed-nieuws-winnaar-van-prijzen-blijft-trots-op-hun-journalistieke-prestaties-na-een-donkere-periode)
+
+[Nieuwe wetgeving in Europa om fraude met cryptogeld te bestrijden](https://nieuwsvertaald.nl/tech/48330/nieuwe-wetgeving-in-europa-om-fraude-met-cryptogeld-te-bestrijden)
+
+[LinkedIn bereikt bijna miljard gebruikers na 20 jaar: een succesvolle groei in de schaduw.](https://nieuwsvertaald.nl/tech/48326/linkedin-bereikt-bijna-miljard-gebruikers-na-20-jaar-een-succesvolle-groei-in-de-schaduw)
+
+[Leidende expert op gebied van AI verlaat Google en waarschuwt voor technologie.](https://nieuwsvertaald.nl/tech/48312/leidende-expert-op-gebied-van-ai-verlaat-google-en-waarschuwt-voor-technologie)
+
+["Spanning in de technologische sector: Wie komt als winnaar uit de bus in de race naar AI-dominantie?"](https://nieuwsvertaald.nl/tech/48311/spanning-in-de-technologische-sector-wie-komt-als-winnaar-uit-de-bus-in-de-race-naar-ai-dominantie)
+
+[Overnameplannen van Microsoft voor Activision Blizzard tegengehouden door Britse toezichthouder](https://nieuwsvertaald.nl/tech/48310/overnameplannen-van-microsoft-voor-activision-blizzard-tegengehouden-door-britse-toezichthouder)
+
+[Strengere EU-regels gelden voor bijna 20 technische platforms](https://nieuwsvertaald.nl/tech/48309/strengere-eu-regels-gelden-voor-bijna-20-technische-platforms)
+
+[Misleiding van kinderen in Roblox met digitale tokens](https://nieuwsvertaald.nl/tech/48305/misleiding-van-kinderen-in-roblox-met-digitale-tokens)
+
+[Video-chat als remedie voor eenzame kromsnavels.](https://nieuwsvertaald.nl/tech/48290/video-chat-als-remedie-voor-eenzame-kromsnavels)
+
+[Twitter schrapt verificatiebadges van geverifieerde accounts](https://nieuwsvertaald.nl/tech/48289/twitter-schrapt-verificatiebadges-van-geverifieerde-accounts)
+
+[Buzzfeed News, bekroond en zwijgend; journalistieke trots blijft.](https://nieuwsvertaald.nl/tech/48288/buzzfeed-news-bekroond-en-zwijgend-journalistieke-trots-blijft)
+
+[Nieuwe wetgeving in Europa om fraude met cryptocurrency te voorkomen](https://nieuwsvertaald.nl/tech/48287/nieuwe-wetgeving-in-europa-om-fraude-met-cryptocurrency-te-voorkomen)
+
+[LinkedIn is bijna een miljard leden rijk na twintig jaar in stilte te hebben gewerkt.](https://nieuwsvertaald.nl/tech/48283/linkedin-is-bijna-een-miljard-leden-rijk-na-twintig-jaar-in-stilte-te-hebben-gewerkt)
+
+["Leider van digitale intelligentie neemt afscheid bij Google en waarschuwt voor artificiële intelligentie"](https://nieuwsvertaald.nl/tech/48269/leider-van-digitale-intelligentie-neemt-afscheid-bij-google-en-waarschuwt-voor-artificiele-intelligentie)
+
+[Tech-maatschappijen in de strijd om de heerschappij van AI](https://nieuwsvertaald.nl/tech/48268/tech-maatschappijen-in-de-strijd-om-de-heerschappij-van-ai)
+
+[Overname van Activision Blizzard door Microsoft wordt gedwarsboomd door Britse curator.](https://nieuwsvertaald.nl/tech/48267/overname-van-activision-blizzard-door-microsoft-wordt-gedwarsboomd-door-britse-curator)
+
+[Nieuwe EU-voorschriften gelden voor bijna twintig technologieplatforms](https://nieuwsvertaald.nl/tech/48266/nieuwe-eu-voorschriften-gelden-voor-bijna-twintig-technologieplatforms)
+
+[Oplichting van minderjarigen met digitale valuta voor gaming site Roblox](https://nieuwsvertaald.nl/tech/48262/oplichting-van-minderjarigen-met-digitale-valuta-voor-gaming-site-roblox)
+
+[Eenzaamheid van papegaaien vermindert door videobellen](https://nieuwsvertaald.nl/tech/48247/eenzaamheid-van-papegaaien-vermindert-door-videobellen)
+
+[Twitter verwijdert verificatiebadge voor goedgekeurde accounts](https://nieuwsvertaald.nl/tech/48246/twitter-verwijdert-verificatiebadge-voor-goedgekeurde-accounts)
+
+[Buzzfeed News na succesvolle jaren offline, nog steeds trots op journalistieke prestaties](https://nieuwsvertaald.nl/tech/48245/buzzfeed-news-na-succesvolle-jaren-offline-nog-steeds-trots-op-journalistieke-prestaties)
+
+[Europese wetgeving ter bestrijding van crypto-fraude goedgekeurd](https://nieuwsvertaald.nl/tech/48244/europese-wetgeving-ter-bestrijding-van-crypto-fraude-goedgekeurd)
+
+[De toekomst van de AI-branche: Welk bedrijf slaat zijn slag?](https://nieuwsvertaald.nl/tech/48240/de-toekomst-van-de-ai-branche-welk-bedrijf-slaat-zijn-slag)
+
+[Activision Blizzard overname door Microsoft afgekeurd door Britse regelgever](https://nieuwsvertaald.nl/tech/48226/activision-blizzard-overname-door-microsoft-afgekeurd-door-britse-regelgever)
+
+[Strengere regels EU voor bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/48225/strengere-regels-eu-voor-bijna-20-techplatforms)
+
+[Kinderen bedrogen met digitale valuta op Roblox gaming platform](https://nieuwsvertaald.nl/tech/48221/kinderen-bedrogen-met-digitale-valuta-op-roblox-gaming-platform)
+
+[Op afstand contact voor verdrietige vogels](https://nieuwsvertaald.nl/tech/48206/op-afstand-contact-voor-verdrietige-vogels)
+
+[Blauwe vinkjes voor bevestigde gebruikers gewist op Twitter](https://nieuwsvertaald.nl/tech/48205/blauwe-vinkjes-voor-bevestigde-gebruikers-gewist-op-twitter)
+
+[Buzzfeed News, bekroond en nu in de schaduw, blijft trots op hun journalistieke inzet](https://nieuwsvertaald.nl/tech/48204/buzzfeed-news-bekroond-en-nu-in-de-schaduw-blijft-trots-op-hun-journalistieke-inzet)
+
+[Nieuwe wetgeving in Europa gericht op bestrijden van fraude met crypto](https://nieuwsvertaald.nl/tech/48203/nieuwe-wetgeving-in-europa-gericht-op-bestrijden-van-fraude-met-crypto)
+
+['Leider van AI stapt uit Google en neemt waarschuwend afscheid'](https://nieuwsvertaald.nl/tech/48199/leider-van-ai-stapt-uit-google-en-neemt-waarschuwend-afscheid)
+
+[De strijd om de AI-heerschappij: Welk bedrijf zal zegevieren?](https://nieuwsvertaald.nl/tech/48185/de-strijd-om-de-ai-heerschappij-welk-bedrijf-zal-zegevieren)
+
+[Overname van Activision Blizzard door Microsoft tegengehouden door toezichthouder in het VK.](https://nieuwsvertaald.nl/tech/48184/overname-van-activision-blizzard-door-microsoft-tegengehouden-door-toezichthouder-in-het-vk)
+
+[Strengere regels van de Europese Unie gelden voor bijna twintig techplatforms](https://nieuwsvertaald.nl/tech/48183/strengere-regels-van-de-europese-unie-gelden-voor-bijna-twintig-techplatforms)
+
+[Kinderen bedrogen met virtuele valuta op gaming site Roblox](https://nieuwsvertaald.nl/tech/48179/kinderen-bedrogen-met-virtuele-valuta-op-gaming-site-roblox)
+
+[Eenzame papegaaien vinden verlichting in videogesprekken](https://nieuwsvertaald.nl/tech/48164/eenzame-papegaaien-vinden-verlichting-in-videogesprekken)
+
+[Twitter schrapt verificatie van gebruikers met blauwe vinkjes](https://nieuwsvertaald.nl/tech/48163/twitter-schrapt-verificatie-van-gebruikers-met-blauwe-vinkjes)
+
+[Buzzfeed News toont trots op journalistieke prestaties na succesvol verleden](https://nieuwsvertaald.nl/tech/48162/buzzfeed-news-toont-trots-op-journalistieke-prestaties-na-succesvol-verleden)
+
+[Nieuwe Europese wetgeving om cryptofraude te bestrijden goedgekeurd](https://nieuwsvertaald.nl/tech/48161/nieuwe-europese-wetgeving-om-cryptofraude-te-bestrijden-goedgekeurd)
+
+[Leider in AI vertrekt bij Google en uit bezorgdheid over kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/48157/leider-in-ai-vertrekt-bij-google-en-uit-bezorgdheid-over-kunstmatige-intelligentie)
+
+[Spanning stijgt onder techfirma's: de race om AI-dominantie](https://nieuwsvertaald.nl/tech/48143/spanning-stijgt-onder-techfirmas-de-race-om-ai-dominantie)
+
+[Britse instantie weert opkoop Activision Blizzard door Microsoft af](https://nieuwsvertaald.nl/tech/48142/britse-instantie-weert-opkoop-activision-blizzard-door-microsoft-af)
+
+[Strengere regels van Europese Unie van toepassing op bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/48141/strengere-regels-van-europese-unie-van-toepassing-op-bijna-20-techplatforms)
+
+[Oplichting van kinderen door inzet virtuele valuta op gameplatform Roblox](https://nieuwsvertaald.nl/tech/48140/oplichting-van-kinderen-door-inzet-virtuele-valuta-op-gameplatform-roblox)
+
+[Videobellen biedt uitkomst voor geïsoleerde vogels.](https://nieuwsvertaald.nl/tech/48136/videobellen-biedt-uitkomst-voor-geisoleerde-vogels)
+
+[Twitter schrapt verificatie voor accounts met blauwe vinkjes](https://nieuwsvertaald.nl/tech/48121/twitter-schrapt-verificatie-voor-accounts-met-blauwe-vinkjes)
+
+[Buzzfeed News, winnaar van prijzen, gaat door na de donkerste jaren en behoudt trots op journalistieke werkzaamheden.](https://nieuwsvertaald.nl/tech/48120/buzzfeed-news-winnaar-van-prijzen-gaat-door-na-de-donkerste-jaren-en-behoudt-trots-op-journalistieke-werkzaamheden)
+
+[Nieuwe Europese wetgeving tegen misbruik van crypto's in werking getreden](https://nieuwsvertaald.nl/tech/48119/nieuwe-europese-wetgeving-tegen-misbruik-van-cryptos-in-werking-getreden)
+
+[LinkedIn viert twintigjarig bestaan met bijna miljard leden in rustige omgeving.](https://nieuwsvertaald.nl/tech/48115/linkedin-viert-twintigjarig-bestaan-met-bijna-miljard-leden-in-rustige-omgeving)
+
+['Koploper in AI stapt op bij Google en geeft waarschuwing'](https://nieuwsvertaald.nl/tech/48101/koploper-in-ai-stapt-op-bij-google-en-geeft-waarschuwing)
+
+[Wie zal leiden in strijd om AI-dominantie? Technologie corporaties op scherp.](https://nieuwsvertaald.nl/tech/48100/wie-zal-leiden-in-strijd-om-ai-dominantie-technologie-corporaties-op-scherp)
+
+[Overname Activision Blizzard door Microsoft tegengehouden door Britse regelgevers](https://nieuwsvertaald.nl/tech/48099/overname-activision-blizzard-door-microsoft-tegengehouden-door-britse-regelgevers)
+
+[Nieuwe regels voor bijna 20 techplatforms in EU](https://nieuwsvertaald.nl/tech/48098/nieuwe-regels-voor-bijna-20-techplatforms-in-eu)
+
+[Oplichting van kinderen met nepmunten op Roblox's spelforum](https://nieuwsvertaald.nl/tech/48094/oplichting-van-kinderen-met-nepmunten-op-robloxs-spelforum)
+
+[Eenzame papegaaien vinden verbinding via videobellen](https://nieuwsvertaald.nl/tech/48079/eenzame-papegaaien-vinden-verbinding-via-videobellen)
+
+[Twitter schrapt bevestigingsmerktekens voor gecontroleerde accounts](https://nieuwsvertaald.nl/tech/48078/twitter-schrapt-bevestigingsmerktekens-voor-gecontroleerde-accounts)
+
+[Buzzfeed News, ongekend succesvol, streeft naar kwaliteitsjournalistiek.](https://nieuwsvertaald.nl/tech/48077/buzzfeed-news-ongekend-succesvol-streeft-naar-kwaliteitsjournalistiek)
+
+[Nieuwe wetgeving in Europa om cryptofraude te bestrijden.](https://nieuwsvertaald.nl/tech/48076/nieuwe-wetgeving-in-europa-om-cryptofraude-te-bestrijden)
+
+['Leider in AI verlaat Google en waarschuwt voor kunstmatige intelligentie'](https://nieuwsvertaald.nl/tech/48068/leider-in-ai-verlaat-google-en-waarschuwt-voor-kunstmatige-intelligentie)
+
+[Welk bedrijf gaat zegevieren in de strijd om AI? Technologie giganten scherpen hun messen.](https://nieuwsvertaald.nl/tech/48058/welk-bedrijf-gaat-zegevieren-in-de-strijd-om-ai-technologie-giganten-scherpen-hun-messen)
+
+[Groot-Brittannië's regulator stopt overname Activision Blizzard door Microsoft](https://nieuwsvertaald.nl/tech/48057/groot-brittannies-regulator-stopt-overname-activision-blizzard-door-microsoft)
+
+[Nieuwe regels EU voor bijna twintig techplatforms](https://nieuwsvertaald.nl/tech/48056/nieuwe-regels-eu-voor-bijna-twintig-techplatforms)
+
+[Kinderoplichting door virtueel geld op gamewebsite Roblox](https://nieuwsvertaald.nl/tech/48055/kinderoplichting-door-virtueel-geld-op-gamewebsite-roblox)
+
+[Op afstand verbonden met papegaaien die gezelschap nodig hebben](https://nieuwsvertaald.nl/tech/48037/op-afstand-verbonden-met-papegaaien-die-gezelschap-nodig-hebben)
+
+[Twitter schrapt verificatiesymbool voor geauthenticeerde accounts.](https://nieuwsvertaald.nl/tech/48036/twitter-schrapt-verificatiesymbool-voor-geauthenticeerde-accounts)
+
+[Buzzfeed News, meervoudig bekroond en in duisternis gehuld, blijft hoogstaand journalistiek werk leveren](https://nieuwsvertaald.nl/tech/48035/buzzfeed-news-meervoudig-bekroond-en-in-duisternis-gehuld-blijft-hoogstaand-journalistiek-werk-leveren)
+
+[Nieuwe wetgeving in Europa om misbruik van cryptocurrency te voorkomen.](https://nieuwsvertaald.nl/tech/48034/nieuwe-wetgeving-in-europa-om-misbruik-van-cryptocurrency-te-voorkomen)
+
+[Vertrek AI-pioneer bij Google en waarschuwt over machinale intelligentie](https://nieuwsvertaald.nl/tech/48026/vertrek-ai-pioneer-bij-google-en-waarschuwt-over-machinale-intelligentie)
+
+[De strijd om AI overheersing: Tech giganten op hoogspanning](https://nieuwsvertaald.nl/tech/48016/de-strijd-om-ai-overheersing-tech-giganten-op-hoogspanning)
+
+[Overname van Activision Blizzard door Microsoft geweigerd door Britse toezichthouder](https://nieuwsvertaald.nl/tech/48015/overname-van-activision-blizzard-door-microsoft-geweigerd-door-britse-toezichthouder)
+
+[Nieuwe regelgeving EU van invloed op bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/48014/nieuwe-regelgeving-eu-van-invloed-op-bijna-20-techplatforms)
+
+[Oplichting van jonge spelers met nepmunten op Roblox-spelplatform](https://nieuwsvertaald.nl/tech/48010/oplichting-van-jonge-spelers-met-nepmunten-op-roblox-spelplatform)
+
+[Oplossing voor alleenstaande papegaaien: Videobellen](https://nieuwsvertaald.nl/tech/47996/oplossing-voor-alleenstaande-papegaaien-videobellen)
+
+[Twitter haalt verificatiebadges weg bij bevestigde accounts.](https://nieuwsvertaald.nl/tech/47995/twitter-haalt-verificatiebadges-weg-bij-bevestigde-accounts)
+
+[Buzzfeed Nieuws wint prijzen na glorieuze periode van succes, 'gekoesterd om hun journalistieke uitmuntendheid'](https://nieuwsvertaald.nl/tech/47994/buzzfeed-nieuws-wint-prijzen-na-glorieuze-periode-van-succes-gekoesterd-om-hun-journalistieke-uitmuntendheid)
+
+[Nieuwe wetgeving in Europa gericht op het bestrijden van fraude met cryptocurrency.](https://nieuwsvertaald.nl/tech/47993/nieuwe-wetgeving-in-europa-gericht-op-het-bestrijden-van-fraude-met-cryptocurrency)
+
+[LinkedIn bestaat nu twintig jaar en heeft bijna een miljard leden bereikt met een glanzende groei.](https://nieuwsvertaald.nl/tech/47985/linkedin-bestaat-nu-twintig-jaar-en-heeft-bijna-een-miljard-leden-bereikt-met-een-glanzende-groei)
+
+[Google verliest pionier van AI en waarschuwt voor technologie.](https://nieuwsvertaald.nl/tech/47974/google-verliest-pionier-van-ai-en-waarschuwt-voor-technologie)
+
+[Welk bedrijf wint de strijd om AI-heerschappij? Techgiganten in staat van paraatheid](https://nieuwsvertaald.nl/tech/47973/welk-bedrijf-wint-de-strijd-om-ai-heerschappij-techgiganten-in-staat-van-paraatheid)
+
+[Activision Blizzard overname door Microsoft gestopt door Britse regulatoren](https://nieuwsvertaald.nl/tech/47972/activision-blizzard-overname-door-microsoft-gestopt-door-britse-regulatoren)
+
+[Techbedrijven onderworpen aan strengere regelgeving door EU](https://nieuwsvertaald.nl/tech/47971/techbedrijven-onderworpen-aan-strengere-regelgeving-door-eu)
+
+[Oplichting van kinderen via virtuele munteenheid op Roblox spelplatform](https://nieuwsvertaald.nl/tech/47967/oplichting-van-kinderen-via-virtuele-munteenheid-op-roblox-spelplatform)
+
+[Videochatten biedt verlichting voor eenzaam isolerende vogels.](https://nieuwsvertaald.nl/tech/47953/videochatten-biedt-verlichting-voor-eenzaam-isolerende-vogels)
+
+[Blauwe vinkjes van geverifieerde Twitterers worden weggehaald](https://nieuwsvertaald.nl/tech/47952/blauwe-vinkjes-van-geverifieerde-twitterers-worden-weggehaald)
+
+[Gerenommeerd Buzzfeed Nieuws verduistert na succes, 'verheugd over hun vak'](https://nieuwsvertaald.nl/tech/47951/gerenommeerd-buzzfeed-nieuws-verduistert-na-succes-verheugd-over-hun-vak)
+
+[Nieuwe regelgeving in Europa ter bestrijding van fraude met digitale valuta](https://nieuwsvertaald.nl/tech/47950/nieuwe-regelgeving-in-europa-ter-bestrijding-van-fraude-met-digitale-valuta)
+
+[LinkedIn, het sociale platform voor professionals, viert 20-jarig jubileum met bijna 1 miljard leden](https://nieuwsvertaald.nl/tech/47946/linkedin-het-sociale-platform-voor-professionals-viert-20-jarig-jubileum-met-bijna-1-miljard-leden)
+
+[Topexpert AI verlaat Google en benadrukt gevaren van kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/47933/topexpert-ai-verlaat-google-en-benadrukt-gevaren-van-kunstmatige-intelligentie)
+
+[De strijd om de leidende positie in de Artificial Intelligence-wedloop: welke bedrijven hebben het voordeel?](https://nieuwsvertaald.nl/tech/47932/de-strijd-om-de-leidende-positie-in-de-artificial-intelligence-wedloop-welke-bedrijven-hebben-het-voordeel)
+
+[Overnamepoging Microsoft van Activision Blizzard afgeketst door Britse toezichthouder](https://nieuwsvertaald.nl/tech/47931/overnamepoging-microsoft-van-activision-blizzard-afgeketst-door-britse-toezichthouder)
+
+[Technologieplatforms worden meer gereguleerd in de Europese Unie vanwege bijna twintig invloedrijke platformen.](https://nieuwsvertaald.nl/tech/47930/technologieplatforms-worden-meer-gereguleerd-in-de-europese-unie-vanwege-bijna-twintig-invloedrijke-platformen)
+
+[Kinderen bedrogen met nepmunten op gameplatform Roblox](https://nieuwsvertaald.nl/tech/47925/kinderen-bedrogen-met-nepmunten-op-gameplatform-roblox)
+
+[Daling van huizenwaarde werd waargenomen in april](https://nieuwsvertaald.nl/algemeen/47920/daling-van-huizenwaarde-werd-waargenomen-in-april)
+
+[Eenzaamheid van papegaaien opgelost met videochat](https://nieuwsvertaald.nl/tech/47909/eenzaamheid-van-papegaaien-opgelost-met-videochat)
+
+[Twitter haalt verified badges weg bij accounts met een blauw vinkje](https://nieuwsvertaald.nl/tech/47908/twitter-haalt-verified-badges-weg-bij-accounts-met-een-blauw-vinkje)
+
+[Award-winnend media platform Buzzfeed News stopt na succesvolle periode, blijft journalistieke prestaties koesteren](https://nieuwsvertaald.nl/tech/47907/award-winnend-media-platform-buzzfeed-news-stopt-na-succesvolle-periode-blijft-journalistieke-prestaties-koesteren)
+
+[Europese wetgeving ter bestrijding van fraude met cryptocurrencies goedgekeurd](https://nieuwsvertaald.nl/tech/47906/europese-wetgeving-ter-bestrijding-van-fraude-met-cryptocurrencies-goedgekeurd)
+
+[Expert in Artificiële Intelligentie stapt uit Google en trekt aan de alarmbel betreffende AI](https://nieuwsvertaald.nl/tech/47898/expert-in-artificiele-intelligentie-stapt-uit-google-en-trekt-aan-de-alarmbel-betreffende-ai)
+
+[Indrukwekkende snelheid Van Kalmthout net niet genoeg voor polepositie bij Indy 500](https://nieuwsvertaald.nl/sport-overig/47888/indrukwekkende-snelheid-van-kalmthout-net-niet-genoeg-voor-polepositie-bij-indy-500)
+
+[Welke bedrijven leiden de race in AI? Innovatiebedrijven staan op scherp.](https://nieuwsvertaald.nl/tech/47887/welke-bedrijven-leiden-de-race-in-ai-innovatiebedrijven-staan-op-scherp)
+
+[Overname van Activision Blizzard door Microsoft afgewezen door Britse regulator](https://nieuwsvertaald.nl/tech/47886/overname-van-activision-blizzard-door-microsoft-afgewezen-door-britse-regulator)
+
+[Strengere regels EU voor bijna twintig techplatforms](https://nieuwsvertaald.nl/tech/47885/strengere-regels-eu-voor-bijna-twintig-techplatforms)
+
+[Bedrog van kinderen met neppe valuta op gameplatform Roblox](https://nieuwsvertaald.nl/tech/47881/bedrog-van-kinderen-met-neppe-valuta-op-gameplatform-roblox)
+
+[Videocommunicatie als oplossing voor geïsoleerde papegaaien](https://nieuwsvertaald.nl/tech/47866/videocommunicatie-als-oplossing-voor-geisoleerde-papegaaien)
+
+[Twitter schrapt verificatie van accounts met blauwe vinkjes](https://nieuwsvertaald.nl/tech/47865/twitter-schrapt-verificatie-van-accounts-met-blauwe-vinkjes)
+
+[Buzzfeed News, ooit bekroond en nu in duisternis gehuld, blijft zinvol werken.](https://nieuwsvertaald.nl/tech/47864/buzzfeed-news-ooit-bekroond-en-nu-in-duisternis-gehuld-blijft-zinvol-werken)
+
+[Nieuwe wetgeving in Europa om fraude met cryptocurrency te voorkomen goedgekeurd](https://nieuwsvertaald.nl/tech/47863/nieuwe-wetgeving-in-europa-om-fraude-met-cryptocurrency-te-voorkomen-goedgekeurd)
+
+[Experte van machine-intelligentie stopt bij Google en uit zorgen over kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/47855/experte-van-machine-intelligentie-stopt-bij-google-en-uit-zorgen-over-kunstmatige-intelligentie)
+
+[Op welk bedrijf moet je inzetten voor de AI-overwinning? Innovators schakelen een tandje hoger](https://nieuwsvertaald.nl/tech/47844/op-welk-bedrijf-moet-je-inzetten-voor-de-ai-overwinning-innovators-schakelen-een-tandje-hoger)
+
+[Overname van Activision Blizzard door Microsoft afgekeurd door Britse toezichthouder](https://nieuwsvertaald.nl/tech/47843/overname-van-activision-blizzard-door-microsoft-afgekeurd-door-britse-toezichthouder)
+
+[Techplatforms onderhevig aan strengere EU-regels door bijna twintig identificatie.](https://nieuwsvertaald.nl/tech/47842/techplatforms-onderhevig-aan-strengere-eu-regels-door-bijna-twintig-identificatie)
+
+[Kinderen bedrogen door online valuta in Roblox game wereld](https://nieuwsvertaald.nl/tech/47841/kinderen-bedrogen-door-online-valuta-in-roblox-game-wereld)
+
+[Oplossing voor eenzaamheid bij vogels: communiceren via video](https://nieuwsvertaald.nl/tech/47837/oplossing-voor-eenzaamheid-bij-vogels-communiceren-via-video)
+
+[Verifieerde gebruikers op Twitter verliezen hun blauwe vinkjes](https://nieuwsvertaald.nl/tech/47822/verifieerde-gebruikers-op-twitter-verliezen-hun-blauwe-vinkjes)
+
+[Buzzfeed Nieuws wint prijs na succesvolle periode en gaat offline, blijft achter met trots op hun professionele prestaties.](https://nieuwsvertaald.nl/tech/47821/buzzfeed-nieuws-wint-prijs-na-succesvolle-periode-en-gaat-offline-blijft-achter-met-trots-op-hun-professionele-prestaties)
+
+[Europese verordening ter bestrijding van frauduleuze activiteiten met cryptocurrencies aangenomen](https://nieuwsvertaald.nl/tech/47820/europese-verordening-ter-bestrijding-van-frauduleuze-activiteiten-met-cryptocurrencies-aangenomen)
+
+[Leider van AI-ontwikkeling verlaat Google en uit zorgen over kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/47803/leider-van-ai-ontwikkeling-verlaat-google-en-uit-zorgen-over-kunstmatige-intelligentie)
+
+[Welk bedrijf zal de leidende positie innemen in de AI-wedloop? Innovatieve organisaties zijn klaar voor actie.](https://nieuwsvertaald.nl/tech/47802/welk-bedrijf-zal-de-leidende-positie-innemen-in-de-ai-wedloop-innovatieve-organisaties-zijn-klaar-voor-actie)
+
+[Overname van Activision Blizzard door Microsoft geblokkeerd door Britse toezichthouder.](https://nieuwsvertaald.nl/tech/47801/overname-van-activision-blizzard-door-microsoft-geblokkeerd-door-britse-toezichthouder)
+
+[Strengere EU-regelgeving van toepassing op bijna twintig techplatforms](https://nieuwsvertaald.nl/tech/47800/strengere-eu-regelgeving-van-toepassing-op-bijna-twintig-techplatforms)
+
+[Fraude met virtuele valuta op gameplatform Roblox brengt kinderen in de problemen](https://nieuwsvertaald.nl/tech/47796/fraude-met-virtuele-valuta-op-gameplatform-roblox-brengt-kinderen-in-de-problemen)
+
+[Oplossing voor eenzaamheid bij papegaaien via videochat](https://nieuwsvertaald.nl/tech/47782/oplossing-voor-eenzaamheid-bij-papegaaien-via-videochat)
+
+[Twitter schrapt verificatie van accounts met blauw vinkje](https://nieuwsvertaald.nl/tech/47781/twitter-schrapt-verificatie-van-accounts-met-blauw-vinkje)
+
+[Buzzfeed News, eens bekroond en nu verdwenen, 'verheugd over hun journalistieke inzet'](https://nieuwsvertaald.nl/tech/47780/buzzfeed-news-eens-bekroond-en-nu-verdwenen-verheugd-over-hun-journalistieke-inzet)
+
+[Nieuwe wetgeving in Europees verband gericht op het bestrijden van fraude met cryptocurrency.](https://nieuwsvertaald.nl/tech/47779/nieuwe-wetgeving-in-europees-verband-gericht-op-het-bestrijden-van-fraude-met-cryptocurrency)
+
+[LinkedIn groeit gestaag naar een miljard leden: 20 jaar in de maak.](https://nieuwsvertaald.nl/tech/47775/linkedin-groeit-gestaag-naar-een-miljard-leden-20-jaar-in-de-maak)
+
+[Leider op vlak van AI verlaat Google en waarschuwt voor kunstmatige intelligentie.](https://nieuwsvertaald.nl/tech/47761/leider-op-vlak-van-ai-verlaat-google-en-waarschuwt-voor-kunstmatige-intelligentie)
+
+[Techreuzen strijden om de leidende positie in de race naar AI-top](https://nieuwsvertaald.nl/tech/47760/techreuzen-strijden-om-de-leidende-positie-in-de-race-naar-ai-top)
+
+[Overname Activision Blizzard door Microsoft geblokkeerd door Britse instantie](https://nieuwsvertaald.nl/tech/47759/overname-activision-blizzard-door-microsoft-geblokkeerd-door-britse-instantie)
+
+["Nieuwe regels EU van toepassing op bijna twintig technologieplatforms"](https://nieuwsvertaald.nl/tech/47758/nieuwe-regels-eu-van-toepassing-op-bijna-twintig-technologieplatforms)
+
+[Oplichting met virtuele valuta blijkt plaag onder jeugdige gamers op Roblox platform](https://nieuwsvertaald.nl/tech/47754/oplichting-met-virtuele-valuta-blijkt-plaag-onder-jeugdige-gamers-op-roblox-platform)
+
+[Oplossing voor vereenzaming van papegaaien via videochat](https://nieuwsvertaald.nl/tech/47740/oplossing-voor-vereenzaming-van-papegaaien-via-videochat)
+
+[Twitter haalt verificatie badge weg bij geregistreerde gebruikers](https://nieuwsvertaald.nl/tech/47739/twitter-haalt-verificatie-badge-weg-bij-geregistreerde-gebruikers)
+
+[Buzzfeed News, na succesvolle jaren, stopt tijdelijk, zegt 'journalistiek werk blijft onze grootste prestatie'](https://nieuwsvertaald.nl/tech/47738/buzzfeed-news-na-succesvolle-jaren-stopt-tijdelijk-zegt-journalistiek-werk-blijft-onze-grootste-prestatie)
+
+[Europese normen om fraude in de cryptowereld te bestrijden zijn goedgekeurd.](https://nieuwsvertaald.nl/tech/47737/europese-normen-om-fraude-in-de-cryptowereld-te-bestrijden-zijn-goedgekeurd)
+
+[20 jaar bestaan van LinkedIn: Groei naar bijna miljard gebruikers onopgemerkt?](https://nieuwsvertaald.nl/tech/47733/20-jaar-bestaan-van-linkedin-groei-naar-bijna-miljard-gebruikers-onopgemerkt)
+
+['Visionair in AI vertrekt bij Google en trekt aan de bel voor de toekomst van kunstmatige intelligentie'](https://nieuwsvertaald.nl/tech/47719/visionair-in-ai-vertrekt-bij-google-en-trekt-aan-de-bel-voor-de-toekomst-van-kunstmatige-intelligentie)
+
+[Wie wordt de AI-leider? Tech-giganten vechten om dominantie.](https://nieuwsvertaald.nl/tech/47718/wie-wordt-de-ai-leider-tech-giganten-vechten-om-dominantie)
+
+[Overname van Activision Blizzard door Microsoft tegengehouden door Britse toezichthouder](https://nieuwsvertaald.nl/tech/47717/overname-van-activision-blizzard-door-microsoft-tegengehouden-door-britse-toezichthouder)
+
+[Techgiganten moeten voldoen aan nieuwe regels van EU](https://nieuwsvertaald.nl/tech/47716/techgiganten-moeten-voldoen-aan-nieuwe-regels-van-eu)
+
+[Ouders waarschuwen: Fraude met virtuele valuta aan de gang op gameplatform Roblox](https://nieuwsvertaald.nl/tech/47714/ouders-waarschuwen-fraude-met-virtuele-valuta-aan-de-gang-op-gameplatform-roblox)
+
+[Oplossing voor eenzaamheid bij vogels door middel van video-chat](https://nieuwsvertaald.nl/tech/47698/oplossing-voor-eenzaamheid-bij-vogels-door-middel-van-video-chat)
+
+[Twitter haalt verificatie van profielen met blauwe vinkjes weg](https://nieuwsvertaald.nl/tech/47697/twitter-haalt-verificatie-van-profielen-met-blauwe-vinkjes-weg)
+
+[Buzzfeed News, succesvolle periode afgesloten en klaar voor nieuwe uitdagingen in journalistieke wereld](https://nieuwsvertaald.nl/tech/47696/buzzfeed-news-succesvolle-periode-afgesloten-en-klaar-voor-nieuwe-uitdagingen-in-journalistieke-wereld)
+
+[Nieuwe wetgeving in Europa ter bestrijding van digitale valutafraude](https://nieuwsvertaald.nl/tech/47695/nieuwe-wetgeving-in-europa-ter-bestrijding-van-digitale-valutafraude)
+
+[Twintig jaar geleden gesticht, LinkedIn nadert grens van miljard leden in stilte](https://nieuwsvertaald.nl/tech/47691/twintig-jaar-geleden-gesticht-linkedin-nadert-grens-van-miljard-leden-in-stilte)
+
+[Kunstmatige intelligentie goeroe verlaat Google en uit bezorgdheid over AI](https://nieuwsvertaald.nl/tech/47677/kunstmatige-intelligentie-goeroe-verlaat-google-en-uit-bezorgdheid-over-ai)
+
+[Wie wint de strijd om kunstmatige intelligentie? Tech giganten op hoogspanning](https://nieuwsvertaald.nl/tech/47676/wie-wint-de-strijd-om-kunstmatige-intelligentie-tech-giganten-op-hoogspanning)
+
+[Overnameplannen Activision Blizzard door Microsoft verhinderd door Britse toezichthouder](https://nieuwsvertaald.nl/tech/47675/overnameplannen-activision-blizzard-door-microsoft-verhinderd-door-britse-toezichthouder)
+
+[Strengere EU-regels voor bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/47674/strengere-eu-regels-voor-bijna-20-techplatforms)
+
+[Oplichting van minderjarigen door 'virtuele munten' op Roblox-gameplatform](https://nieuwsvertaald.nl/tech/47670/oplichting-van-minderjarigen-door-virtuele-munten-op-roblox-gameplatform)
+
+[Kalmthout toont ijzingwekkende snelheid in zoektocht naar beste startplek voor Indy 500.](https://nieuwsvertaald.nl/sport-overig/47656/kalmthout-toont-ijzingwekkende-snelheid-in-zoektocht-naar-beste-startplek-voor-indy-500)
+
+[Videochat als oplossing voor geïsoleerde vogels](https://nieuwsvertaald.nl/tech/47655/videochat-als-oplossing-voor-geisoleerde-vogels)
+
+[Verificatievinkjes op Twitter worden weggehaald voor bevestigde accounts](https://nieuwsvertaald.nl/tech/47654/verificatievinkjes-op-twitter-worden-weggehaald-voor-bevestigde-accounts)
+
+[Buzzfeed Nieuws viel in de prijzen maar gaat in de luwte, 'Trots op het verslaggeversvak'](https://nieuwsvertaald.nl/tech/47653/buzzfeed-nieuws-viel-in-de-prijzen-maar-gaat-in-de-luwte-trots-op-het-verslaggeversvak)
+
+[Nieuwe wetgeving in Europa ter bestrijding van frauduleus gebruik van crypto-valuta.](https://nieuwsvertaald.nl/tech/47652/nieuwe-wetgeving-in-europa-ter-bestrijding-van-frauduleus-gebruik-van-crypto-valuta)
+
+[LinkedIn bestaat twee decennia en heeft bijna een miljard gebruikers weten te bereiken in stilte](https://nieuwsvertaald.nl/tech/47648/linkedin-bestaat-twee-decennia-en-heeft-bijna-een-miljard-gebruikers-weten-te-bereiken-in-stilte)
+
+[Leider op gebied van AI verlaat Google en benadrukt risico's van kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/47633/leider-op-gebied-van-ai-verlaat-google-en-benadrukt-risicos-van-kunstmatige-intelligentie)
+
+[Onzekerheid heerst: Welk bedrijf zal de koppositie in AI-wedloop innemen?](https://nieuwsvertaald.nl/tech/47632/onzekerheid-heerst-welk-bedrijf-zal-de-koppositie-in-ai-wedloop-innemen)
+
+[Overname van Activision Blizzard door Microsoft geblokkeerd door Britse toezichthouder](https://nieuwsvertaald.nl/tech/47631/overname-van-activision-blizzard-door-microsoft-geblokkeerd-door-britse-toezichthouder)
+
+[Strengere EU-regels voor bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/47630/strengere-eu-regels-voor-bijna-20-techplatforms)
+
+[Ouders waarschuwen voor oplichting met virtuele valuta op Roblox-spelplatform voor kinderen](https://nieuwsvertaald.nl/tech/47626/ouders-waarschuwen-voor-oplichting-met-virtuele-valuta-op-roblox-spelplatform-voor-kinderen)
+
+[Real Madrid speler Vinícius ervaart racistische opmerkingen en is uiteindelijk uitgesloten bij een verlies.](https://nieuwsvertaald.nl/voetbal/47612/real-madrid-speler-vinicius-ervaart-racistische-opmerkingen-en-is-uiteindelijk-uitgesloten-bij-een-verlies)
+
+[Oplossing voor eenzame vogels: Communiceer met videobellen](https://nieuwsvertaald.nl/tech/47611/oplossing-voor-eenzame-vogels-communiceer-met-videobellen)
+
+[Twitter schrapt verificatie badges voor accounts in gebruik](https://nieuwsvertaald.nl/tech/47610/twitter-schrapt-verificatie-badges-voor-accounts-in-gebruik)
+
+[Buzzfeed News stopt na succesvolle periode, herinnert aan fantastisch journalisme](https://nieuwsvertaald.nl/tech/47609/buzzfeed-news-stopt-na-succesvolle-periode-herinnert-aan-fantastisch-journalisme)
+
+[Europa komt met regels tegen fraude met digitale munten](https://nieuwsvertaald.nl/tech/47608/europa-komt-met-regels-tegen-fraude-met-digitale-munten)
+
+[Leider van AI stapt uit bij Google en waarschuwt voor kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/47604/leider-van-ai-stapt-uit-bij-google-en-waarschuwt-voor-kunstmatige-intelligentie)
+
+[Welke bedrijven zullen de leiding nemen in de race voor AI-heerschappij? Op scherp staande tech-bedrijven.](https://nieuwsvertaald.nl/tech/47590/welke-bedrijven-zullen-de-leiding-nemen-in-de-race-voor-ai-heerschappij-op-scherp-staande-tech-bedrijven)
+
+[Overname van Activision Blizzard door Microsoft geblokkeerd door Britse toezichthouder](https://nieuwsvertaald.nl/tech/47589/overname-van-activision-blizzard-door-microsoft-geblokkeerd-door-britse-toezichthouder)
+
+[Strenge regels EU voor bijna twintig technologieplatforms](https://nieuwsvertaald.nl/tech/47588/strenge-regels-eu-voor-bijna-twintig-technologieplatforms)
+
+[Frauduleuze activiteiten met digitale valuta op gameplatform voor kinderen, Roblox.](https://nieuwsvertaald.nl/tech/47584/frauduleuze-activiteiten-met-digitale-valuta-op-gameplatform-voor-kinderen-roblox)
+
+[Videochatten vermindert eenzaamheid bij vogels](https://nieuwsvertaald.nl/tech/47570/videochatten-vermindert-eenzaamheid-bij-vogels)
+
+[Twitter stopt met het plaatsen van blauwe vinkjes bij geverifieerde accounts](https://nieuwsvertaald.nl/tech/47569/twitter-stopt-met-het-plaatsen-van-blauwe-vinkjes-bij-geverifieerde-accounts)
+
+[Buzzfeed News, de trotse journalisten na gouden successen en donkere tijden](https://nieuwsvertaald.nl/tech/47568/buzzfeed-news-de-trotse-journalisten-na-gouden-successen-en-donkere-tijden)
+
+[Nieuwe wetgeving in Europa om fraude met cryptogeld te bestrijden goedgekeurd](https://nieuwsvertaald.nl/tech/47567/nieuwe-wetgeving-in-europa-om-fraude-met-cryptogeld-te-bestrijden-goedgekeurd)
+
+[LinkedIn viert twintigjarig bestaan met bijna miljard gebruikers in relatieve stilte](https://nieuwsvertaald.nl/tech/47563/linkedin-viert-twintigjarig-bestaan-met-bijna-miljard-gebruikers-in-relatieve-stilte)
+
+[Leider van AI stapt op bij Google en uit bezorgdheid over kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/47550/leider-van-ai-stapt-op-bij-google-en-uit-bezorgdheid-over-kunstmatige-intelligentie)
+
+[Spanning heerst onder technologiebedrijven; wie zal de winnaar zijn van de AI-wedloop?](https://nieuwsvertaald.nl/tech/47549/spanning-heerst-onder-technologiebedrijven-wie-zal-de-winnaar-zijn-van-de-ai-wedloop)
+
+[Overname van Activision Blizzard door Microsoft niet goedgekeurd door Britse toezichthouder](https://nieuwsvertaald.nl/tech/47548/overname-van-activision-blizzard-door-microsoft-niet-goedgekeurd-door-britse-toezichthouder)
+
+[Tech platformen onderworpen aan strengere EU regels: bijna 20 stuks](https://nieuwsvertaald.nl/tech/47547/tech-platformen-onderworpen-aan-strengere-eu-regels-bijna-20-stuks)
+
+[Misleiding van kinderen met digitale munteenheden voor gameplatform Roblox](https://nieuwsvertaald.nl/tech/47545/misleiding-van-kinderen-met-digitale-munteenheden-voor-gameplatform-roblox)
+
+[Oplossing tegen eenzaamheid van papegaaien: videobellen](https://nieuwsvertaald.nl/tech/47529/oplossing-tegen-eenzaamheid-van-papegaaien-videobellen)
+
+[Blauwe vinkjes voor geverifieerde gebruikers op Twitter worden verwijderd](https://nieuwsvertaald.nl/tech/47528/blauwe-vinkjes-voor-geverifieerde-gebruikers-op-twitter-worden-verwijderd)
+
+[Buzzfeed News, succesvol in het verleden, nu in stilte, maar nog steeds trots op hun journalistieke prestaties](https://nieuwsvertaald.nl/tech/47527/buzzfeed-news-succesvol-in-het-verleden-nu-in-stilte-maar-nog-steeds-trots-op-hun-journalistieke-prestaties)
+
+[Nieuwe wetgeving in Europa richt zich op bestrijding van fraude in de cryptowereld](https://nieuwsvertaald.nl/tech/47526/nieuwe-wetgeving-in-europa-richt-zich-op-bestrijding-van-fraude-in-de-cryptowereld)
+
+[Expert op gebied van AI verlaat Google en uit bezorgdheid](https://nieuwsvertaald.nl/tech/47522/expert-op-gebied-van-ai-verlaat-google-en-uit-bezorgdheid)
+
+[City wint van Chelsea en ontvangt trofee als nieuwe kampioen](https://nieuwsvertaald.nl/voetbal/47508/city-wint-van-chelsea-en-ontvangt-trofee-als-nieuwe-kampioen)
+
+[Welk bedrijf zal leiden in de wedloop van AI-technologie? Concurrentie onder techbedrijven groeit.](https://nieuwsvertaald.nl/tech/47506/welk-bedrijf-zal-leiden-in-de-wedloop-van-ai-technologie-concurrentie-onder-techbedrijven-groeit)
+
+[Britse regulator stopt verkoop van Activision Blizzard aan Microsoft](https://nieuwsvertaald.nl/tech/47505/britse-regulator-stopt-verkoop-van-activision-blizzard-aan-microsoft)
+
+[Strengere EU-regels voor bijna twintig techplatforms](https://nieuwsvertaald.nl/tech/47504/strengere-eu-regels-voor-bijna-twintig-techplatforms)
+
+[Jeugd voor de gek gehouden door vervalste in-game valuta in Roblox-platform](https://nieuwsvertaald.nl/tech/47503/jeugd-voor-de-gek-gehouden-door-vervalste-in-game-valuta-in-roblox-platform)
+
+[Videochat voor vermaak van solitaire gevederde vrienden](https://nieuwsvertaald.nl/tech/47499/videochat-voor-vermaak-van-solitaire-gevederde-vrienden)
+
+[Nieuwe kampioen Manchester City wint van Chelsea en krijgt beker](https://nieuwsvertaald.nl/voetbal/47485/nieuwe-kampioen-manchester-city-wint-van-chelsea-en-krijgt-beker)
+
+[Twitter schrapt verificatievinkjes van accounts](https://nieuwsvertaald.nl/tech/47483/twitter-schrapt-verificatievinkjes-van-accounts)
+
+[Buzzfeed Nieuws valt in slaap na winnende jaren, eert uitmuntendheid in journalistiek werk.](https://nieuwsvertaald.nl/tech/47482/buzzfeed-nieuws-valt-in-slaap-na-winnende-jaren-eert-uitmuntendheid-in-journalistiek-werk)
+
+[Nieuwe Europese wetgeving ter voorkoming van bedrog met cryptocurrency aangenomen](https://nieuwsvertaald.nl/tech/47481/nieuwe-europese-wetgeving-ter-voorkoming-van-bedrog-met-cryptocurrency-aangenomen)
+
+[Welke ondernemingen zullen de leiding nemen in de strijd om AI-dominantie? Technologiebedrijven zijn alert.](https://nieuwsvertaald.nl/tech/47465/welke-ondernemingen-zullen-de-leiding-nemen-in-de-strijd-om-ai-dominantie-technologiebedrijven-zijn-alert)
+
+[Overname van Activision Blizzard door Microsoft afgekeurd door Britse toezichthouder](https://nieuwsvertaald.nl/tech/47464/overname-van-activision-blizzard-door-microsoft-afgekeurd-door-britse-toezichthouder)
+
+[Nieuwe wetten EU voor bijna twintig techplatforms](https://nieuwsvertaald.nl/tech/47463/nieuwe-wetten-eu-voor-bijna-twintig-techplatforms)
+
+[Oplichting van kinderen via fictieve munten op Roblox gaming website.](https://nieuwsvertaald.nl/tech/47459/oplichting-van-kinderen-via-fictieve-munten-op-roblox-gaming-website)
+
+[Videoconference: De beste remedie voor geïsoleerde papegaaien.](https://nieuwsvertaald.nl/tech/47444/videoconference-de-beste-remedie-voor-geisoleerde-papegaaien)
+
+[Twitter schrapt erkenningstekens voor bevestigde accounts](https://nieuwsvertaald.nl/tech/47443/twitter-schrapt-erkenningstekens-voor-bevestigde-accounts)
+
+[Buzzfeed News, bekroond en gemotiveerd ondanks tegenslagen](https://nieuwsvertaald.nl/tech/47442/buzzfeed-news-bekroond-en-gemotiveerd-ondanks-tegenslagen)
+
+[Nieuwe regels in Europa om malafide activiteiten met digitale valuta te bestrijden.](https://nieuwsvertaald.nl/tech/47441/nieuwe-regels-in-europa-om-malafide-activiteiten-met-digitale-valuta-te-bestrijden)
+
+[Welke onderneming zal als overwinnaar uit de strijd komen voor AI-dominantie? Bedrijven in de tech branche zijn in hoogspanning.](https://nieuwsvertaald.nl/tech/47437/welke-onderneming-zal-als-overwinnaar-uit-de-strijd-komen-voor-ai-dominantie-bedrijven-in-de-tech-branche-zijn-in-hoogspanning)
+
+[Overname van Activision Blizzard door Microsoft tegengehouden door Britse regulator](https://nieuwsvertaald.nl/tech/47424/overname-van-activision-blizzard-door-microsoft-tegengehouden-door-britse-regulator)
+
+[Techplatforms moeten in Europa voldoen aan nieuwe regels](https://nieuwsvertaald.nl/tech/47423/techplatforms-moeten-in-europa-voldoen-aan-nieuwe-regels)
+
+[Kinderen bedrogen door fictieve munten op gaming site Roblox](https://nieuwsvertaald.nl/tech/47422/kinderen-bedrogen-door-fictieve-munten-op-gaming-site-roblox)
+
+[Oplossing voor eenzaamheid bij papegaaien: videobellen](https://nieuwsvertaald.nl/tech/47418/oplossing-voor-eenzaamheid-bij-papegaaien-videobellen)
+
+[Twitter schrapt blauwe verificatie voor accounts](https://nieuwsvertaald.nl/tech/47403/twitter-schrapt-blauwe-verificatie-voor-accounts)
+
+[Buzzfeed News, met onderscheiden verleden, schakelt uit, 'trots op kwaliteit journalistiek'](https://nieuwsvertaald.nl/tech/47402/buzzfeed-news-met-onderscheiden-verleden-schakelt-uit-trots-op-kwaliteit-journalistiek)
+
+[Europese goedkeuring voor wetgeving tegen crypto-zwendel](https://nieuwsvertaald.nl/tech/47401/europese-goedkeuring-voor-wetgeving-tegen-crypto-zwendel)
+
+[LinkedIn viert zijn twee decennia en heeft bijna één miljard leden aangetrokken in een rustige maar gestage groei.](https://nieuwsvertaald.nl/tech/47397/linkedin-viert-zijn-twee-decennia-en-heeft-bijna-een-miljard-leden-aangetrokken-in-een-rustige-maar-gestage-groei)
+
+[Expert op gebied van AI vertrekt bij Google en waarschuwt voor gevolgen](https://nieuwsvertaald.nl/tech/47385/expert-op-gebied-van-ai-vertrekt-bij-google-en-waarschuwt-voor-gevolgen)
+
+[Spanning tussen techbedrijven: Wie wordt de heerser van de AI-wedloop?](https://nieuwsvertaald.nl/tech/47384/spanning-tussen-techbedrijven-wie-wordt-de-heerser-van-de-ai-wedloop)
+
+[Overname van Activision Blizzard door Microsoft geweigerd door Britse regulator](https://nieuwsvertaald.nl/tech/47383/overname-van-activision-blizzard-door-microsoft-geweigerd-door-britse-regulator)
+
+[Europese Unie stelt zware regels op voor bijna twintig techplatformen](https://nieuwsvertaald.nl/tech/47382/europese-unie-stelt-zware-regels-op-voor-bijna-twintig-techplatformen)
+
+[Jonge slachtoffers van fraude door nep-geld op gaming website Roblox](https://nieuwsvertaald.nl/tech/47378/jonge-slachtoffers-van-fraude-door-nep-geld-op-gaming-website-roblox)
+
+[Videochat als remedie tegen solitaire vogels](https://nieuwsvertaald.nl/tech/47364/videochat-als-remedie-tegen-solitaire-vogels)
+
+[Twitter schrapt verificatie badge voor accounts.](https://nieuwsvertaald.nl/tech/47363/twitter-schrapt-verificatie-badge-voor-accounts)
+
+[Buzzfeed News, bekroond en nu in zwart, blijft trots op journalistiek](https://nieuwsvertaald.nl/tech/47362/buzzfeed-news-bekroond-en-nu-in-zwart-blijft-trots-op-journalistiek)
+
+[Nieuwe Europese regelgeving om crypto-fraude te voorkomen goedgekeurd](https://nieuwsvertaald.nl/tech/47361/nieuwe-europese-regelgeving-om-crypto-fraude-te-voorkomen-goedgekeurd)
+
+[Dodelijk ongeval met vliegtuigje in Kroatië eist levens van drie Nederlanders](https://nieuwsvertaald.nl/buitenland/47358/dodelijk-ongeval-met-vliegtuigje-in-kroatie-eist-levens-van-drie-nederlanders)
+
+[Op wie gaat de AI-zege af? Tech-ondernemingen blijven alert](https://nieuwsvertaald.nl/tech/47355/op-wie-gaat-de-ai-zege-af-tech-ondernemingen-blijven-alert)
+
+[Triomferende McNulty pakt overwinning in Giro na intense eindstrijd, Mollema finisht als nummer vier](https://nieuwsvertaald.nl/wielrennen/47344/triomferende-mcnulty-pakt-overwinning-in-giro-na-intense-eindstrijd-mollema-finisht-als-nummer-vier)
+
+[Overname van Activision Blizzard door Microsoft gestuit door Britse toezichthouder](https://nieuwsvertaald.nl/tech/47343/overname-van-activision-blizzard-door-microsoft-gestuit-door-britse-toezichthouder)
+
+[Techbedrijven moeten strenger voldoen aan Europese regels](https://nieuwsvertaald.nl/tech/47342/techbedrijven-moeten-strenger-voldoen-aan-europese-regels)
+
+[Kinderen misleid door digitale valuta op gaming platform genaamd Roblox](https://nieuwsvertaald.nl/tech/47341/kinderen-misleid-door-digitale-valuta-op-gaming-platform-genaamd-roblox)
+
+[Oplossing met videobellen voor eenzaamheid bij vogels](https://nieuwsvertaald.nl/tech/47340/oplossing-met-videobellen-voor-eenzaamheid-bij-vogels)
+
+[Geverifieerde Twitter-accounts verliezen blauwe badges](https://nieuwsvertaald.nl/tech/47324/geverifieerde-twitter-accounts-verliezen-blauwe-badges)
+
+[Buzzfeed News, bekroond en vurig, eindigt met glorie en trots op hun rapportages.](https://nieuwsvertaald.nl/tech/47323/buzzfeed-news-bekroond-en-vurig-eindigt-met-glorie-en-trots-op-hun-rapportages)
+
+[Nieuwe wetgeving voor bestrijding van digitale fraude in Europa goedgekeurd.](https://nieuwsvertaald.nl/tech/47322/nieuwe-wetgeving-voor-bestrijding-van-digitale-fraude-in-europa-goedgekeurd)
+
+[Leider kunstmatige intelligentie vertrekt bij Google en geeft waarschuwing over AI](https://nieuwsvertaald.nl/tech/47318/leider-kunstmatige-intelligentie-vertrekt-bij-google-en-geeft-waarschuwing-over-ai)
+
+[FC Emmen bereidt zich voor op een uitdagende uitdaging: het programma van de promotie/degradatie play-offs.](https://nieuwsvertaald.nl/voetbal/47304/fc-emmen-bereidt-zich-voor-op-een-uitdagende-uitdaging-het-programma-van-de-promotie-degradatie-play-offs)
+
+[Gevecht om de controle over AI - Techbedrijven strijden voorop](https://nieuwsvertaald.nl/tech/47303/gevecht-om-de-controle-over-ai-techbedrijven-strijden-voorop)
+
+[Overname deal tussen Microsoft en Activision Blizzard tegengehouden door Britse regelgevers](https://nieuwsvertaald.nl/tech/47302/overname-deal-tussen-microsoft-en-activision-blizzard-tegengehouden-door-britse-regelgevers)
+
+[Meer dan negentien tech platformen worden onderworpen aan strikte voorschriften van de Europese Unie](https://nieuwsvertaald.nl/tech/47301/meer-dan-negentien-tech-platformen-worden-onderworpen-aan-strikte-voorschriften-van-de-europese-unie)
+
+[Oplichting van jonge gamers via virtuele valuta op Roblox platform](https://nieuwsvertaald.nl/tech/47300/oplichting-van-jonge-gamers-via-virtuele-valuta-op-roblox-platform)
+
+[Innovatieve chatfunctie voor eenzaam vogels gezelschap](https://nieuwsvertaald.nl/tech/47296/innovatieve-chatfunctie-voor-eenzaam-vogels-gezelschap)
+
+[Twitter schrapt bevestigingslogo's voor geverifieerde gebruikers](https://nieuwsvertaald.nl/tech/47280/twitter-schrapt-bevestigingslogos-voor-geverifieerde-gebruikers)
+
+[Buzzfeed News beëindigt glorieuze periode en kijkt terug op prestaties in de journalistieke wereld](https://nieuwsvertaald.nl/tech/47279/buzzfeed-news-beeindigt-glorieuze-periode-en-kijkt-terug-op-prestaties-in-de-journalistieke-wereld)
+
+[Nieuwe voorschriften in Europa om misbruik van crypto tegen te gaan](https://nieuwsvertaald.nl/tech/47278/nieuwe-voorschriften-in-europa-om-misbruik-van-crypto-tegen-te-gaan)
+
+[Concurrentiestrijd om tweede plaats Eredivisie blijft spannend na gelijkspel PSV en overwinning Ajax](https://nieuwsvertaald.nl/voetbal/47276/concurrentiestrijd-om-tweede-plaats-eredivisie-blijft-spannend-na-gelijkspel-psv-en-overwinning-ajax)
+
+[LinkedIn bereikt bijna miljard leden na twintig jaar in betrekkelijke stilte](https://nieuwsvertaald.nl/tech/47275/linkedin-bereikt-bijna-miljard-leden-na-twintig-jaar-in-betrekkelijke-stilte)
+
+[FC Emmen moet play-offs spelen na hulp Feyenoord aan Excelsior](https://nieuwsvertaald.nl/voetbal/47258/fc-emmen-moet-play-offs-spelen-na-hulp-feyenoord-aan-excelsior)
+
+['Leider van machine learning neemt afscheid van Google en benadrukt gevaren van AI'](https://nieuwsvertaald.nl/tech/47257/leider-van-machine-learning-neemt-afscheid-van-google-en-benadrukt-gevaren-van-ai)
+
+[Wie zal de leiding nemen in de strijd om AI? Tech giganten in competitie.](https://nieuwsvertaald.nl/tech/47256/wie-zal-de-leiding-nemen-in-de-strijd-om-ai-tech-giganten-in-competitie)
+
+[Microsoft mag geen Activision Blizzard overnemen vanwege tegenwerking Britse toezichthouder](https://nieuwsvertaald.nl/tech/47255/microsoft-mag-geen-activision-blizzard-overnemen-vanwege-tegenwerking-britse-toezichthouder)
+
+[Strengere regulering voor bijna twintig techplatforms in Europa](https://nieuwsvertaald.nl/tech/47254/strengere-regulering-voor-bijna-twintig-techplatforms-in-europa)
+
+[Oplichting van kinderen via virtuele munten op Roblox-spelplatform](https://nieuwsvertaald.nl/tech/47250/oplichting-van-kinderen-via-virtuele-munten-op-roblox-spelplatform)
+
+[Oplossing voor geïsoleerde vogels: Videochatten met papegaaien](https://nieuwsvertaald.nl/tech/47235/oplossing-voor-geisoleerde-vogels-videochatten-met-papegaaien)
+
+[Twitter schrapt verificatiebadges voor bevestigde accounts](https://nieuwsvertaald.nl/tech/47234/twitter-schrapt-verificatiebadges-voor-bevestigde-accounts)
+
+[Buzzfeed News valt in de prijzen en gaat door na periode van stilte, 'wij blijven werken aan goede journalistiek'](https://nieuwsvertaald.nl/tech/47233/buzzfeed-news-valt-in-de-prijzen-en-gaat-door-na-periode-van-stilte-wij-blijven-werken-aan-goede-journalistiek)
+
+[Nieuwe wetgeving in Europa gericht op bestrijding van digitale fraude bij cryptocurrencies](https://nieuwsvertaald.nl/tech/47232/nieuwe-wetgeving-in-europa-gericht-op-bestrijding-van-digitale-fraude-bij-cryptocurrencies)
+
+[Google verliest intelligentie meesterbrein en AI waarschuwing volgt](https://nieuwsvertaald.nl/tech/47228/google-verliest-intelligentie-meesterbrein-en-ai-waarschuwing-volgt)
+
+[Welke organisatie triomfeert in de technologische wedloop van kunstmatige intelligentie? Bedrijven zijn in opperste staat van paraatheid.](https://nieuwsvertaald.nl/tech/47215/welke-organisatie-triomfeert-in-de-technologische-wedloop-van-kunstmatige-intelligentie-bedrijven-zijn-in-opperste-staat-van-paraatheid)
+
+[Overname van Activision Blizzard door Microsoft geblokkeerd door regelgevende instantie in het Verenigd Koninkrijk](https://nieuwsvertaald.nl/tech/47214/overname-van-activision-blizzard-door-microsoft-geblokkeerd-door-regelgevende-instantie-in-het-verenigd-koninkrijk)
+
+[Techplatforms moeten zich houden aan nieuwe EU-regels](https://nieuwsvertaald.nl/tech/47213/techplatforms-moeten-zich-houden-aan-nieuwe-eu-regels)
+
+[Vooruitzicht weer: Lenteachtige dagen met een tijdelijke afkoeling](https://nieuwsvertaald.nl/binnenland/47211/vooruitzicht-weer-lenteachtige-dagen-met-een-tijdelijke-afkoeling)
+
+[Oplichting met digitale coins voor kinderspel Roblox.](https://nieuwsvertaald.nl/tech/47210/oplichting-met-digitale-coins-voor-kinderspel-roblox)
+
+[Oplossing voor eenzame vogels: videobellen](https://nieuwsvertaald.nl/tech/47193/oplossing-voor-eenzame-vogels-videobellen)
+
+[Twitter schrapt blauwe vinkjes voor geverifieerde accounts](https://nieuwsvertaald.nl/tech/47192/twitter-schrapt-blauwe-vinkjes-voor-geverifieerde-accounts)
+
+[Belangwekkend journalistiek werk van bekroonde Buzzfeed News tot stilstand gekomen na een glanzende periode op inactief gezet.](https://nieuwsvertaald.nl/tech/47191/belangwekkend-journalistiek-werk-van-bekroonde-buzzfeed-news-tot-stilstand-gekomen-na-een-glanzende-periode-op-inactief-gezet)
+
+[Nieuwe Europese wetgeving bekrachtigd om fraude met cryptomunten te bestrijden](https://nieuwsvertaald.nl/tech/47190/nieuwe-europese-wetgeving-bekrachtigd-om-fraude-met-cryptomunten-te-bestrijden)
+
+[Feest ter ere van het 20-jarig bestaan: LinkedIn heeft nu bijna een miljard gebruikers en dat ging niet onopgemerkt voorbij](https://nieuwsvertaald.nl/tech/47186/feest-ter-ere-van-het-20-jarig-bestaan-linkedin-heeft-nu-bijna-een-miljard-gebruikers-en-dat-ging-niet-onopgemerkt-voorbij)
+
+[Topman van AI vertrekt bij Google en waarschuwt voor potentieel risico.](https://nieuwsvertaald.nl/tech/47172/topman-van-ai-vertrekt-bij-google-en-waarschuwt-voor-potentieel-risico)
+
+[Welke firma's zullen triomferen in de wedloop om AI-heerschappij? Techondernemingen zijn gespannen.](https://nieuwsvertaald.nl/tech/47171/welke-firmas-zullen-triomferen-in-de-wedloop-om-ai-heerschappij-techondernemingen-zijn-gespannen)
+
+[Britse regulator stopt fusie van Microsoft en Activision Blizzard](https://nieuwsvertaald.nl/tech/47170/britse-regulator-stopt-fusie-van-microsoft-en-activision-blizzard)
+
+[Strengere EU-regels gelden voor bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/47169/strengere-eu-regels-gelden-voor-bijna-20-techplatforms)
+
+[Oplichterij met digitale valuta schaadt jeugd op Roblox game site](https://nieuwsvertaald.nl/tech/47165/oplichterij-met-digitale-valuta-schaadt-jeugd-op-roblox-game-site)
+
+[Video-oproep oplossing voor geïsoleerde vogels](https://nieuwsvertaald.nl/tech/47150/video-oproep-oplossing-voor-geisoleerde-vogels)
+
+[Twitter schrapt blauwe vinkjes voor geauthenticeerde accounts](https://nieuwsvertaald.nl/tech/47149/twitter-schrapt-blauwe-vinkjes-voor-geauthenticeerde-accounts)
+
+[Buzzfeed Nieuws bekroond na succesvolle periode, maar nu tijdelijk offline en verheugd over hun journalistieke inspanningen.](https://nieuwsvertaald.nl/tech/47148/buzzfeed-nieuws-bekroond-na-succesvolle-periode-maar-nu-tijdelijk-offline-en-verheugd-over-hun-journalistieke-inspanningen)
+
+[Nieuwe wetgeving in Europa ter bestrijding van fraude met cryptocurrency.](https://nieuwsvertaald.nl/tech/47147/nieuwe-wetgeving-in-europa-ter-bestrijding-van-fraude-met-cryptocurrency)
+
+[Topexpert kunstmatige intelligentie verlaat Google vanwege waarschuwingen over AI.](https://nieuwsvertaald.nl/tech/47143/topexpert-kunstmatige-intelligentie-verlaat-google-vanwege-waarschuwingen-over-ai)
+
+[Welk bedrijf wint de race in de AI-markt? Techgiganten zijn in competitieve sferen.](https://nieuwsvertaald.nl/tech/47129/welk-bedrijf-wint-de-race-in-de-ai-markt-techgiganten-zijn-in-competitieve-sferen)
+
+[Aanvraag Microsoft voor overname van Activision Blizzard door Britse toezichthouder geweigerd](https://nieuwsvertaald.nl/tech/47128/aanvraag-microsoft-voor-overname-van-activision-blizzard-door-britse-toezichthouder-geweigerd)
+
+[Nieuwe wetgeving EU van invloed op bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/47127/nieuwe-wetgeving-eu-van-invloed-op-bijna-20-techplatforms)
+
+[Kinderen bedrogen door vals geld op gaming site Roblox](https://nieuwsvertaald.nl/tech/47126/kinderen-bedrogen-door-vals-geld-op-gaming-site-roblox)
+
+[Oplossing voor alleenstaande papegaaien: communiceer via video!](https://nieuwsvertaald.nl/tech/47122/oplossing-voor-alleenstaande-papegaaien-communiceer-via-video)
+
+[Twitter neemt afstand van blauwe vinkjes bij geverifieerde accounts](https://nieuwsvertaald.nl/tech/47107/twitter-neemt-afstand-van-blauwe-vinkjes-bij-geverifieerde-accounts)
+
+[Buzzfeed News verheugt zich nog steeds op het maken van journalistiek werk, ondanks de recente donkere periode na een reeks gouden jaren.](https://nieuwsvertaald.nl/tech/47106/buzzfeed-news-verheugt-zich-nog-steeds-op-het-maken-van-journalistiek-werk-ondanks-de-recente-donkere-periode-na-een-reeks-gouden-jaren)
+
+[Europa neemt maatregelen tegen crypto-fraude](https://nieuwsvertaald.nl/tech/47105/europa-neemt-maatregelen-tegen-crypto-fraude)
+
+[Tech-guru en AI-visionair vertrekt bij Google en waarschuwt voor gevaren van Artificiële Intelligentie](https://nieuwsvertaald.nl/tech/47101/tech-guru-en-ai-visionair-vertrekt-bij-google-en-waarschuwt-voor-gevaren-van-artificiele-intelligentie)
+
+[Welke tech-gigant wint de strijd om AI-overheersing? Bedrijven zetten zich schrap](https://nieuwsvertaald.nl/tech/47088/welke-tech-gigant-wint-de-strijd-om-ai-overheersing-bedrijven-zetten-zich-schrap)
+
+[Overname Activision Blizzard door Microsoft geweigerd door Britse toezichthouder](https://nieuwsvertaald.nl/tech/47087/overname-activision-blizzard-door-microsoft-geweigerd-door-britse-toezichthouder)
+
+["De EU instelt strengere voorschriften voor bijna twintig tech platforms"](https://nieuwsvertaald.nl/tech/47086/de-eu-instelt-strengere-voorschriften-voor-bijna-twintig-tech-platforms)
+
+[Oplichting van kinderen middels virtuele munten op Roblox's gaming platform](https://nieuwsvertaald.nl/tech/47085/oplichting-van-kinderen-middels-virtuele-munten-op-robloxs-gaming-platform)
+
+[Nederlandse luchtvaartuig gekrast in bebost gebied van Kroatië.](https://nieuwsvertaald.nl/buitenland/47083/nederlandse-luchtvaartuig-gekrast-in-bebost-gebied-van-kroatie)
+
+[Videochatten als remedie voor geïsoleerde vogels](https://nieuwsvertaald.nl/tech/47067/videochatten-als-remedie-voor-geisoleerde-vogels)
+
+[Twitter schrapt controlevinkjes van bevestigde accounts](https://nieuwsvertaald.nl/tech/47066/twitter-schrapt-controlevinkjes-van-bevestigde-accounts)
+
+[Buzzfeed Nieuws bekroond met awards, nu offline na glorietijd, 'verheugd over hun professionele inzet'](https://nieuwsvertaald.nl/tech/47065/buzzfeed-nieuws-bekroond-met-awards-nu-offline-na-glorietijd-verheugd-over-hun-professionele-inzet)
+
+[Nieuwe normen in Europa om misbruik van crypto aan te pakken](https://nieuwsvertaald.nl/tech/47064/nieuwe-normen-in-europa-om-misbruik-van-crypto-aan-te-pakken)
+
+[Waarschuwing voor zware onweersbuien in bepaald gebied](https://nieuwsvertaald.nl/binnenland/47062/waarschuwing-voor-zware-onweersbuien-in-bepaald-gebied)
+
+[LinkedIn viert het 20-jarig bestaan terwijl het bijna een miljard leden bereikt in stilte.](https://nieuwsvertaald.nl/tech/47059/linkedin-viert-het-20-jarig-bestaan-terwijl-het-bijna-een-miljard-leden-bereikt-in-stilte)
+
+[Hoofdpersoon AI-industrie vertrekt bij Google en waarschuwt tegen kunstmatige intelligentie.](https://nieuwsvertaald.nl/tech/47045/hoofdpersoon-ai-industrie-vertrekt-bij-google-en-waarschuwt-tegen-kunstmatige-intelligentie)
+
+[Welk techbedrijf wint de strijd om AI-dominantie? Spanning stijgt.](https://nieuwsvertaald.nl/tech/47044/welk-techbedrijf-wint-de-strijd-om-ai-dominantie-spanning-stijgt)
+
+[Overnameplannen van Microsoft voor Activision Blizzard verhinderd door regelgevende instantie in VK.](https://nieuwsvertaald.nl/tech/47043/overnameplannen-van-microsoft-voor-activision-blizzard-verhinderd-door-regelgevende-instantie-in-vk)
+
+[Tech platforms moeten zich houden aan nieuwe EU regels](https://nieuwsvertaald.nl/tech/47042/tech-platforms-moeten-zich-houden-aan-nieuwe-eu-regels)
+
+[Jeugd opgelicht via online munten bij gaming platform Roblox](https://nieuwsvertaald.nl/tech/47039/jeugd-opgelicht-via-online-munten-bij-gaming-platform-roblox)
+
+[Oplossing voor eenzaamheid van papegaaien: Videobellen](https://nieuwsvertaald.nl/tech/47022/oplossing-voor-eenzaamheid-van-papegaaien-videobellen)
+
+[Twitter schrapt verificatie van accounts met blauwe vinkjes](https://nieuwsvertaald.nl/tech/47021/twitter-schrapt-verificatie-van-accounts-met-blauwe-vinkjes)
+
+[Trots op hun journalistieke prestaties ondanks onzekere toekomst: het bekroonde Buzzfeed News sluit na succesvolle jaren.](https://nieuwsvertaald.nl/tech/47020/trots-op-hun-journalistieke-prestaties-ondanks-onzekere-toekomst-het-bekroonde-buzzfeed-news-sluit-na-succesvolle-jaren)
+
+[Nieuwe regelgeving in Europa om oplichting met crypto's te voorkomen](https://nieuwsvertaald.nl/tech/47019/nieuwe-regelgeving-in-europa-om-oplichting-met-cryptos-te-voorkomen)
+
+[GVB meldt incident in de metro tegen man die op de trein sprong.](https://nieuwsvertaald.nl/binnenland/47017/gvb-meldt-incident-in-de-metro-tegen-man-die-op-de-trein-sprong)
+
+[LinkedIn bereikt bijna miljard lidmaatschappen onopvallend na twee decennia](https://nieuwsvertaald.nl/tech/47014/linkedin-bereikt-bijna-miljard-lidmaatschappen-onopvallend-na-twee-decennia)
+
+[Top AI-expert verlaat Google en deelt verontrustende visie op kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/46999/top-ai-expert-verlaat-google-en-deelt-verontrustende-visie-op-kunstmatige-intelligentie)
+
+[AI-wedloop: Welk bedrijf zal de leiding nemen? Technologiebedrijven zijn alert.](https://nieuwsvertaald.nl/tech/46998/ai-wedloop-welk-bedrijf-zal-de-leiding-nemen-technologiebedrijven-zijn-alert)
+
+[Britse autoriteit verbiedt Microsoft's overname van Activision Blizzard](https://nieuwsvertaald.nl/tech/46997/britse-autoriteit-verbiedt-microsofts-overname-van-activision-blizzard)
+
+[Europese Unie legt strengere voorschriften op aan bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/46996/europese-unie-legt-strengere-voorschriften-op-aan-bijna-20-techplatforms)
+
+[Bedrieglijke virtuele valuta treft jonge gamers op Roblox platform](https://nieuwsvertaald.nl/tech/46992/bedrieglijke-virtuele-valuta-treft-jonge-gamers-op-roblox-platform)
+
+[Oplossing om geïsoleerde papegaaien te verbinden via videochat](https://nieuwsvertaald.nl/tech/46976/oplossing-om-geisoleerde-papegaaien-te-verbinden-via-videochat)
+
+[Twitter schrapt verificatietekens van bevestigde accounts](https://nieuwsvertaald.nl/tech/46975/twitter-schrapt-verificatietekens-van-bevestigde-accounts)
+
+[Buzzfeed Nieuws ontvangt prijzen, blijft journalistiek werk trots ondanks succesvolle maar donkere periode](https://nieuwsvertaald.nl/tech/46974/buzzfeed-nieuws-ontvangt-prijzen-blijft-journalistiek-werk-trots-ondanks-succesvolle-maar-donkere-periode)
+
+[Nieuwe wetgeving binnen Europa in strijd tegen bedrog met crypto](https://nieuwsvertaald.nl/tech/46973/nieuwe-wetgeving-binnen-europa-in-strijd-tegen-bedrog-met-crypto)
+
+[LinkedIn: Een bijna miljard leden tellend platform dat 20 jaar geleden gestart is in stilte](https://nieuwsvertaald.nl/tech/46969/linkedin-een-bijna-miljard-leden-tellend-platform-dat-20-jaar-geleden-gestart-is-in-stilte)
+
+[Vertrek van AI &amp; waarschuwingen door "Godfather" kunstmatige intelligentie van Google](https://nieuwsvertaald.nl/tech/46954/vertrek-van-ai-andamp-waarschuwingen-door-godfather-kunstmatige-intelligentie-van-google)
+
+[Welke ondernemingen hebben de leiding in de wedloop voor AI? Technische bedrijven in de startblokken.](https://nieuwsvertaald.nl/tech/46953/welke-ondernemingen-hebben-de-leiding-in-de-wedloop-voor-ai-technische-bedrijven-in-de-startblokken)
+
+[Overname van Activision Blizzard door Microsoft geweigerd door Britse autoriteiten](https://nieuwsvertaald.nl/tech/46952/overname-van-activision-blizzard-door-microsoft-geweigerd-door-britse-autoriteiten)
+
+[Twintigtal techdiensten onderhevig aan strengere EU regelgeving](https://nieuwsvertaald.nl/tech/46951/twintigtal-techdiensten-onderhevig-aan-strengere-eu-regelgeving)
+
+[Oplichting van kinderen met ingebeelde munteenheid op spelplatform Roblox](https://nieuwsvertaald.nl/tech/46947/oplichting-van-kinderen-met-ingebeelde-munteenheid-op-spelplatform-roblox)
+
+[Unieke oplossing: Videochat voor eenzaam vogels](https://nieuwsvertaald.nl/tech/46931/unieke-oplossing-videochat-voor-eenzaam-vogels)
+
+[Twitter schrapt bevestigingsmarkeringen voor geverifieerde profielen](https://nieuwsvertaald.nl/tech/46930/twitter-schrapt-bevestigingsmarkeringen-voor-geverifieerde-profielen)
+
+[Buzzfeed Nieuws succesvol maar nu in pauze, blij met journalistieke kwaliteit](https://nieuwsvertaald.nl/tech/46929/buzzfeed-nieuws-succesvol-maar-nu-in-pauze-blij-met-journalistieke-kwaliteit)
+
+[Nieuwe Europese wetgeving goedgekeurd ter bestrijding van cryptofraude](https://nieuwsvertaald.nl/tech/46928/nieuwe-europese-wetgeving-goedgekeurd-ter-bestrijding-van-cryptofraude)
+
+[LinkedIn viert twintigjarig jubileum met bijna miljard leden in relatieve rust](https://nieuwsvertaald.nl/tech/46923/linkedin-viert-twintigjarig-jubileum-met-bijna-miljard-leden-in-relatieve-rust)
+
+[Leider op gebied van AI stapt op bij Google en benadrukt gevaren van kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/46908/leider-op-gebied-van-ai-stapt-op-bij-google-en-benadrukt-gevaren-van-kunstmatige-intelligentie)
+
+[Welke organisatie zal de leiding nemen in de wedloop van AI? Bedrijven uit de techwereld staan in de startblokken.](https://nieuwsvertaald.nl/tech/46907/welke-organisatie-zal-de-leiding-nemen-in-de-wedloop-van-ai-bedrijven-uit-de-techwereld-staan-in-de-startblokken)
+
+[Overname van Activision Blizzard door Microsoft afgewezen door Britse toezichthouder](https://nieuwsvertaald.nl/tech/46906/overname-van-activision-blizzard-door-microsoft-afgewezen-door-britse-toezichthouder)
+
+[Europese Unie legt strakkere voorschriften op aan bijna twintig technologieplatforms.](https://nieuwsvertaald.nl/tech/46905/europese-unie-legt-strakkere-voorschriften-op-aan-bijna-twintig-technologieplatforms)
+
+[Gedupeerde kinderen door digitale opties op game portal Roblox](https://nieuwsvertaald.nl/tech/46899/gedupeerde-kinderen-door-digitale-opties-op-game-portal-roblox)
+
+[Videocommunicatie helpt eenzame vogels te verbinden](https://nieuwsvertaald.nl/tech/46883/videocommunicatie-helpt-eenzame-vogels-te-verbinden)
+
+[Twitter schrapt verificatiebadges voor geautoriseerde accounts](https://nieuwsvertaald.nl/tech/46882/twitter-schrapt-verificatiebadges-voor-geautoriseerde-accounts)
+
+[Buzzfeed Nieuws, eenmaal geprezen met prijzen, gaat offline na succesvolle jaren - blijft zich trots richten op journalistieke prestaties.](https://nieuwsvertaald.nl/tech/46881/buzzfeed-nieuws-eenmaal-geprezen-met-prijzen-gaat-offline-na-succesvolle-jaren-blijft-zich-trots-richten-op-journalistieke-prestaties)
+
+[Nieuwe wetgeving in Europa om fraude met cryptocurrencies te voorkomen](https://nieuwsvertaald.nl/tech/46880/nieuwe-wetgeving-in-europa-om-fraude-met-cryptocurrencies-te-voorkomen)
+
+[LinkedIn heeft bijna miljard gebruikers bereikt in twintig jaar](https://nieuwsvertaald.nl/tech/46876/linkedin-heeft-bijna-miljard-gebruikers-bereikt-in-twintig-jaar)
+
+[Expert op gebied van AI verlaat Google en waarschuwt voor gevaren](https://nieuwsvertaald.nl/tech/46862/expert-op-gebied-van-ai-verlaat-google-en-waarschuwt-voor-gevaren)
+
+[De race om de AI-heerschappij: Welke bedrijven zijn klaar voor de strijd?](https://nieuwsvertaald.nl/tech/46861/de-race-om-de-ai-heerschappij-welke-bedrijven-zijn-klaar-voor-de-strijd)
+
+[Overname van Activision Blizzard door Microsoft geweigerd door Britse toezichthouder](https://nieuwsvertaald.nl/tech/46860/overname-van-activision-blizzard-door-microsoft-geweigerd-door-britse-toezichthouder)
+
+[Europese Unie legt strengere regels op aan bijna 20 techplatforms.](https://nieuwsvertaald.nl/tech/46859/europese-unie-legt-strengere-regels-op-aan-bijna-20-techplatforms)
+
+[Roblox game platform schoffeert kinderen met namaak digitale munten](https://nieuwsvertaald.nl/tech/46855/roblox-game-platform-schoffeert-kinderen-met-namaak-digitale-munten)
+
+[Videochatten om eenzaamheid bij papegaaien op te lossen.](https://nieuwsvertaald.nl/tech/46840/videochatten-om-eenzaamheid-bij-papegaaien-op-te-lossen)
+
+[Twitter schrapt identificerende markeringen bij gecontroleerde accounts](https://nieuwsvertaald.nl/tech/46839/twitter-schrapt-identificerende-markeringen-bij-gecontroleerde-accounts)
+
+[Buzzfeed News, bekroond en in afwachting van comeback, geniet van professionele prestaties](https://nieuwsvertaald.nl/tech/46838/buzzfeed-news-bekroond-en-in-afwachting-van-comeback-geniet-van-professionele-prestaties)
+
+[Nieuwe Europese wetgeving ter bestrijding van fraude met cryptocurrency goedgekeurd](https://nieuwsvertaald.nl/tech/46837/nieuwe-europese-wetgeving-ter-bestrijding-van-fraude-met-cryptocurrency-goedgekeurd)
+
+[LinkedIn viert twintig jaar en bereikt bijna miljard leden in rustige stijl](https://nieuwsvertaald.nl/tech/46833/linkedin-viert-twintig-jaar-en-bereikt-bijna-miljard-leden-in-rustige-stijl)
+
+['Kunstmatige Intelligentie Expert Verlaat Google en Benadrukt Risico's van AI'](https://nieuwsvertaald.nl/tech/46821/kunstmatige-intelligentie-expert-verlaat-google-en-benadrukt-risicos-van-ai)
+
+[Spanningen lopen op tussen techbedrijven in de strijd om AI-dominantie](https://nieuwsvertaald.nl/tech/46820/spanningen-lopen-op-tussen-techbedrijven-in-de-strijd-om-ai-dominantie)
+
+[Overname Activision Blizzard door Microsoft geblokkeerd door Britse regulatoren.](https://nieuwsvertaald.nl/tech/46819/overname-activision-blizzard-door-microsoft-geblokkeerd-door-britse-regulatoren)
+
+[Techbedrijven moeten meer rekening houden met EU-regels](https://nieuwsvertaald.nl/tech/46818/techbedrijven-moeten-meer-rekening-houden-met-eu-regels)
+
+[Hoofdredacteur's verklaring | Bas joeg naar unieke beelden toen de F1 Niet doorging](https://nieuwsvertaald.nl/media-en-cultuur/46816/hoofdredacteurs-verklaring-bas-joeg-naar-unieke-beelden-toen-de-f1-niet-doorging)
+
+[Verstoorde treinverbindingen rondom Rotterdam CS: defecte bovenleiding](https://nieuwsvertaald.nl/binnenland/46815/verstoorde-treinverbindingen-rondom-rotterdam-cs-defecte-bovenleiding)
+
+[Kinderen verlokt met digitale valuta voor gamesite Roblox](https://nieuwsvertaald.nl/tech/46812/kinderen-verlokt-met-digitale-valuta-voor-gamesite-roblox)
+
+[Oplossing voor eenzame papegaaien: videobellen](https://nieuwsvertaald.nl/tech/46798/oplossing-voor-eenzame-papegaaien-videobellen)
+
+[Twitter haalt vinkjes weg van geverifieerde accounts.](https://nieuwsvertaald.nl/tech/46797/twitter-haalt-vinkjes-weg-van-geverifieerde-accounts)
+
+[Buzzfeed News erkent zwart gat na succesvolle periode, blijft trots op hun journalistieke arbeid.](https://nieuwsvertaald.nl/tech/46796/buzzfeed-news-erkent-zwart-gat-na-succesvolle-periode-blijft-trots-op-hun-journalistieke-arbeid)
+
+[Nieuwe wetgeving in Europa om fraude met cryptocvaluta te bestrijden.](https://nieuwsvertaald.nl/tech/46795/nieuwe-wetgeving-in-europa-om-fraude-met-cryptocvaluta-te-bestrijden)
+
+[Hoofdredactie avontuur: Bas maakt unieke opnames bij afwezigheid Formule 1](https://nieuwsvertaald.nl/media-en-cultuur/46792/hoofdredactie-avontuur-bas-maakt-unieke-opnames-bij-afwezigheid-formule-1)
+
+[LinkedIn viert twintigste verjaardag en bereikt bijna miljard leden in stilte](https://nieuwsvertaald.nl/tech/46789/linkedin-viert-twintigste-verjaardag-en-bereikt-bijna-miljard-leden-in-stilte)
+
+[Topexpert in AI stopt bij Google en uit bezorgdheid over Kunstmatige Intelligentie](https://nieuwsvertaald.nl/tech/46775/topexpert-in-ai-stopt-bij-google-en-uit-bezorgdheid-over-kunstmatige-intelligentie)
+
+[Welke ondernemingen zullen de leiding nemen in de strijd om AI-hegemonie? Bedrijven in de technologiebranche zijn in opperste paraatheid.](https://nieuwsvertaald.nl/tech/46774/welke-ondernemingen-zullen-de-leiding-nemen-in-de-strijd-om-ai-hegemonie-bedrijven-in-de-technologiebranche-zijn-in-opperste-paraatheid)
+
+[Overname van Activision Blizzard door Microsoft afgekeurd door Britse regelgever](https://nieuwsvertaald.nl/tech/46773/overname-van-activision-blizzard-door-microsoft-afgekeurd-door-britse-regelgever)
+
+[Techplatforms onderhevig aan strengere EU-regelgeving, bijna twintig in totaal](https://nieuwsvertaald.nl/tech/46772/techplatforms-onderhevig-aan-strengere-eu-regelgeving-bijna-twintig-in-totaal)
+
+[Kinderen bedrogen met fictieve munten op gaming site Roblox](https://nieuwsvertaald.nl/tech/46767/kinderen-bedrogen-met-fictieve-munten-op-gaming-site-roblox)
+
+[Oplossing voor de eenzame papegaai: communiceren via video](https://nieuwsvertaald.nl/tech/46752/oplossing-voor-de-eenzame-papegaai-communiceren-via-video)
+
+[Twitter schrapt bevestigingsbadges voor geverifieerde accounts](https://nieuwsvertaald.nl/tech/46751/twitter-schrapt-bevestigingsbadges-voor-geverifieerde-accounts)
+
+[Buzzfeed News: trots op bekroond journalistiek werk na succesvolle periode op non-actief](https://nieuwsvertaald.nl/tech/46750/buzzfeed-news-trots-op-bekroond-journalistiek-werk-na-succesvolle-periode-op-non-actief)
+
+[Nieuwe maatregelen in Europa om frauduleuze praktijken in de cryptowereld te beperken](https://nieuwsvertaald.nl/tech/46749/nieuwe-maatregelen-in-europa-om-frauduleuze-praktijken-in-de-cryptowereld-te-beperken)
+
+[Vooraanstaande AI expert verlaat Google en uit zorgen over kunstmatige intelligentie](https://nieuwsvertaald.nl/tech/46744/vooraanstaande-ai-expert-verlaat-google-en-uit-zorgen-over-kunstmatige-intelligentie)
+
+[Op zoek naar de winnaar van de strijd om AI: Het slagveld van tech giganten](https://nieuwsvertaald.nl/tech/46730/op-zoek-naar-de-winnaar-van-de-strijd-om-ai-het-slagveld-van-tech-giganten)
+
+[British regulator halts Microsoft's bid to acquire Activision Blizzard](https://nieuwsvertaald.nl/tech/46729/british-regulator-halts-microsofts-bid-to-acquire-activision-blizzard)
+
+[Strengere EU-regelgeving van toepassing op bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/46728/strengere-eu-regelgeving-van-toepassing-op-bijna-20-techplatforms)
+
+[Slachtoffers van fraude: jongeren bedrogen met in-game virtuele coins voor Roblox platform](https://nieuwsvertaald.nl/tech/46727/slachtoffers-van-fraude-jongeren-bedrogen-met-in-game-virtuele-coins-voor-roblox-platform)
+
+[Videochat als remedie tegen eenzaamheid bij vogels](https://nieuwsvertaald.nl/tech/46722/videochat-als-remedie-tegen-eenzaamheid-bij-vogels)
+
+[Twitter verwijdert verificatietekens voor gecontroleerde accounts.](https://nieuwsvertaald.nl/tech/46707/twitter-verwijdert-verificatietekens-voor-gecontroleerde-accounts)
+
+[Buzzfeed News wint prijs na succesvolle tijd, nu offline maar blij met hun journalistieke werk](https://nieuwsvertaald.nl/tech/46706/buzzfeed-news-wint-prijs-na-succesvolle-tijd-nu-offline-maar-blij-met-hun-journalistieke-werk)
+
+[Nieuwe wetgeving in EU strijdt tegen crypto-bedrog](https://nieuwsvertaald.nl/tech/46705/nieuwe-wetgeving-in-eu-strijdt-tegen-crypto-bedrog)
+
+[LinkedIn bestaat 20 jaar en groeit in stilte uit tot bijna één miljard gebruikers](https://nieuwsvertaald.nl/tech/46700/linkedin-bestaat-20-jaar-en-groeit-in-stilte-uit-tot-bijna-een-miljard-gebruikers)
+
+[Pionier van machine-intelligentie vertrekt bij Google en waarschuwt voor risico's van AI](https://nieuwsvertaald.nl/tech/46686/pionier-van-machine-intelligentie-vertrekt-bij-google-en-waarschuwt-voor-risicos-van-ai)
+
+[Welk bedrijf zal de leiding nemen in de strijd om AI? Techbedrijven zijn in opperste staat van paraatheid](https://nieuwsvertaald.nl/tech/46685/welk-bedrijf-zal-de-leiding-nemen-in-de-strijd-om-ai-techbedrijven-zijn-in-opperste-staat-van-paraatheid)
+
+[Overname van Activision Blizzard door Microsoft gestopt door Britse regulator.](https://nieuwsvertaald.nl/tech/46684/overname-van-activision-blizzard-door-microsoft-gestopt-door-britse-regulator)
+
+[Strengere EU-regels van toepassing op bijna 20 techplatforms](https://nieuwsvertaald.nl/tech/46683/strengere-eu-regels-van-toepassing-op-bijna-20-techplatforms)
+
+[Kinderen bedrogen met digitale valuta voor online spelletjes platform Roblox](https://nieuwsvertaald.nl/tech/46677/kinderen-bedrogen-met-digitale-valuta-voor-online-spelletjes-platform-roblox)
+
+[Oplossing voor sociale isolatie bij papegaaien via videochat](https://nieuwsvertaald.nl/tech/46662/oplossing-voor-sociale-isolatie-bij-papegaaien-via-videochat)
+
+[Twitter haalt verificatie-badge weg bij gebruikers met blauw vinkje](https://nieuwsvertaald.nl/tech/46661/twitter-haalt-verificatie-badge-weg-bij-gebruikers-met-blauw-vinkje)
+
+[Buzzfeed Nieuws triomfeert bij comeback, journalistieke integriteit hoog in het vaandel](https://nieuwsvertaald.nl/tech/46660/buzzfeed-nieuws-triomfeert-bij-comeback-journalistieke-integriteit-hoog-in-het-vaandel)
+
+[Nieuwe EU-voorschriften om cryptocurrency-fraude te voorkomen goedgekeurd](https://nieuwsvertaald.nl/tech/46659/nieuwe-eu-voorschriften-om-cryptocurrency-fraude-te-voorkomen-goedgekeurd)
+
+[Visionair achter AI verlaat Google en waarschuwt voor de toekomst](https://nieuwsvertaald.nl/tech/46654/visionair-achter-ai-verlaat-google-en-waarschuwt-voor-de-toekomst)
+
+[Welk bedrijf gaat de AI-wedloop winnen? Grote techbedrijven zijn op hun hoede.](https://nieuwsvertaald.nl/tech/46640/welk-bedrijf-gaat-de-ai-wedloop-winnen-grote-techbedrijven-zijn-op-hun-hoede)
+
+[Overname van Activision Blizzard door Microsoft geblokkeerd door Britse regulator](https://nieuwsvertaald.nl/tech/46639/overname-van-activision-blizzard-door-microsoft-geblokkeerd-door-britse-regulator)
+
+[Techbedrijven onderworpen aan nieuwe EU-regels](https://nieuwsvertaald.nl/tech/46638/techbedrijven-onderworpen-aan-nieuwe-eu-regels)
+
+[Oplichting van minderjarigen met digitale munten op Roblox gaming platform](https://nieuwsvertaald.nl/tech/46637/oplichting-van-minderjarigen-met-digitale-munten-op-roblox-gaming-platform)
+
+[Videochat als oplossing voor geïsoleerde vogels](https://nieuwsvertaald.nl/tech/46619/videochat-als-oplossing-voor-geisoleerde-vogels)
+
+[Twitter schrapt kentekenen bedoeld voor geautoriseerde accounts](https://nieuwsvertaald.nl/tech/46618/twitter-schrapt-kentekenen-bedoeld-voor-geautoriseerde-accounts)
+
+[Buzzfeed News, bekroond en vol trots op journalistiek werk na een periode van stilte](https://nieuwsvertaald.nl/tech/46617/buzzfeed-news-bekroond-en-vol-trots-op-journalistiek-werk-na-een-periode-van-stilte)
+
+[Europese wetgeving goedgekeurd ter bestrijding van cryptofraude](https://nieuwsvertaald.nl/tech/46616/europese-wetgeving-goedgekeurd-ter-bestrijding-van-cryptofraude)
+
+[Politieke term misbruikt om schade toe te brengen aan bedrijven en organisaties, met als gevolg een financiële crisis](https://nieuwsvertaald.nl/algemeen/46606/politieke-term-misbruikt-om-schade-toe-te-brengen-aan-bedrijven-en-organisaties-met-als-gevolg-een-financiele-crisis)
+
+[Bepalen techgiganten de toekomst van AI? De race naar de top.](https://nieuwsvertaald.nl/tech/46597/bepalen-techgiganten-de-toekomst-van-ai-de-race-naar-de-top)
+
+[Activision Blizzard overname door Microsoft tegengehouden door Britse regulator](https://nieuwsvertaald.nl/tech/46596/activision-blizzard-overname-door-microsoft-tegengehouden-door-britse-regulator)
+
+[Techgiganten gebonden aan strengere EU-regelgeving](https://nieuwsvertaald.nl/tech/46595/techgiganten-gebonden-aan-strengere-eu-regelgeving)
+
+[Kinderen misleid door denkbeeldige munten op online gaming site Roblox](https://nieuwsvertaald.nl/tech/46590/kinderen-misleid-door-denkbeeldige-munten-op-online-gaming-site-roblox)
+
+[Videoverbinding een remedie voor geïsoleerde vogels](https://nieuwsvertaald.nl/tech/46575/videoverbinding-een-remedie-voor-geisoleerde-vogels)
+
+[Twitter schrapt verificatie van accounts met blauwe vinkjes](https://nieuwsvertaald.nl/tech/46574/twitter-schrapt-verificatie-van-accounts-met-blauwe-vinkjes)
+
+[Buzzfeed News, bekroond en terug van weggeweest, viert de journalistieke prestaties](https://nieuwsvertaald.nl/tech/46573/buzzfeed-news-bekroond-en-terug-van-weggeweest-viert-de-journalistieke-prestaties)
+
+[Nieuwe wetgeving in Europa om fraude met crypto te voorkomen.](https://nieuwsvertaald.nl/tech/46572/nieuwe-wetgeving-in-europa-om-fraude-met-crypto-te-voorkomen)
+
+[LinkedIn viert twintigjarig bestaan als bijna miljard leden platform](https://nieuwsvertaald.nl/tech/46567/linkedin-viert-twintigjarig-bestaan-als-bijna-miljard-leden-platform)
+
+[Expert in machine intelligence vertrekt bij Google en onthult gevaren van AI](https://nieuwsvertaald.nl/tech/46553/expert-in-machine-intelligence-vertrekt-bij-google-en-onthult-gevaren-van-ai)
+
+[Techgiganten strijden om voorlopersplaats in de race naar AI-heerschappij](https://nieuwsvertaald.nl/tech/46552/techgiganten-strijden-om-voorlopersplaats-in-de-race-naar-ai-heerschappij)
+
+[Overname van Activision Blizzard door Microsoft afgekeurd door Britse toezichthouder](https://nieuwsvertaald.nl/tech/46551/overname-van-activision-blizzard-door-microsoft-afgekeurd-door-britse-toezichthouder)
+
+["Europese Unie scherpt regels aan voor bijna 20 technologieplatforms"](https://nieuwsvertaald.nl/tech/46550/europese-unie-scherpt-regels-aan-voor-bijna-20-technologieplatforms)
+
+[Kinderen bedrogen met fictieve munten op game portal Roblox](https://nieuwsvertaald.nl/tech/46545/kinderen-bedrogen-met-fictieve-munten-op-game-portal-roblox)
+
+[Eenzaamheid bij papegaaien opgelost door videobellen](https://nieuwsvertaald.nl/tech/46531/eenzaamheid-bij-papegaaien-opgelost-door-videobellen)
+
+[Twitter neemt de blauwe vinkjes weg voor geverifieerde accounts](https://nieuwsvertaald.nl/tech/46530/twitter-neemt-de-blauwe-vinkjes-weg-voor-geverifieerde-accounts)
+
+[Buzzfeed News, bekroond en klaar voor een nieuw tijdperk: onze journalistieke prestaties zijn ons symbool van trots.](https://nieuwsvertaald.nl/tech/46529/buzzfeed-news-bekroond-en-klaar-voor-een-nieuw-tijdperk-onze-journalistieke-prestaties-zijn-ons-symbool-van-trots)
+
+[Nieuwe wetgeving binnen Europa gericht op tegengaan van crypto-fraude](https://nieuwsvertaald.nl/tech/46528/nieuwe-wetgeving-binnen-europa-gericht-op-tegengaan-van-crypto-fraude)
+
+[Vrouw aangeklaagd voor stalken van zichzelf en onterecht beschuldigen van ander door OM](https://nieuwsvertaald.nl/binnenland/46526/vrouw-aangeklaagd-voor-stalken-van-zichzelf-en-onterecht-beschuldigen-van-ander-door-om)
+
+[LinkedIn bereikt bijna miljard leden in relatieve rust na twintig jaar](https://nieuwsvertaald.nl/tech/46522/linkedin-bereikt-bijna-miljard-leden-in-relatieve-rust-na-twintig-jaar)
+
+['Leider van AI vertrekt bij Google en maakt bezorgdheid over kunstmatige intelligentie kenbaar'](https://nieuwsvertaald.nl/tech/46508/leider-van-ai-vertrekt-bij-google-en-maakt-bezorgdheid-over-kunstmatige-intelligentie-kenbaar)
+
+[Welk technologiebedrijf wint de race in AI? Concurrentie in volle actie.](https://nieuwsvertaald.nl/tech/46507/welk-technologiebedrijf-wint-de-race-in-ai-concurrentie-in-volle-actie)
